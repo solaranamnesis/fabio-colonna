@@ -15,3 +15,10 @@ English - PDF
 Latin - PDF | Biolinum | Atkinson | Cursive | Kerkis | CustomPurplePaper | CustomMurex1  
 English - Plain Text  
 English - PDF  
+
+## Minus Cognitarum Rariorumque Nostro Coelo Orientium Stirpium Ekphrasis.
+
+Latin - Plain Text  
+Latin - PDF | Biolinum | Atkinson | Cursive | Kerkis  
+English - Plain Text  
+English - PDF  
