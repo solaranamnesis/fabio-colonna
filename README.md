@@ -1,6 +1,6 @@
 # Fabio Colonna.
 
-Public Domain Works of Fabio Colonna (1567-1640).
+Public Domain Works of Fabio Colonna, aka Fabio Linceo (1567-1640).
 
 ## La Sambuca Lincea.
 
