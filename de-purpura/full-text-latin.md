@@ -1,6 +1,6 @@
 ##  Fabii Columnæ, Lyncei, _Nobilis Neapolitani_, _Genere Romani_,
 
-# Opusculum de Purpurâ
+# Opusculum de Purpurâ.
 
 ### Romæ primùm, An. 1616. editum,
 
@@ -13,6 +13,10 @@
 ### Medicinæ D.
 
 #### _Cujus novissimè accesserunt_ annotationes quædam.
+
+### Kiliæ,
+
+#### Imprimebat Joachim. Reumannus, Academ. Typogr. 1675.
 
 ---
 
