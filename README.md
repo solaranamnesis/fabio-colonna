@@ -2,7 +2,7 @@
 
 Public Domain Works of Fabio Colonna (1567-1640).
 
-## De purpurâ
+## De Purpurâ.
 
 [Latin - Plain Text](de-purpura/full-text-latin.md)  
 Latin - PDF | Biolinum | Atkinson | Cursive | Kerkis | CustomPurplePaper | CustomMurex1  
