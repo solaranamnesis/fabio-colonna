@@ -22,3 +22,10 @@ Latin - Plain Text
 Latin - PDF | Biolinum | Atkinson | Cursive | Kerkis  
 English - Plain Text  
 English - PDF  
+
+## De _glossopetris_.
+
+Latin - Plain Text  
+Latin - PDF | Biolinum | Atkinson | Cursive | Kerkis  
+English - Plain Text  
+English - PDF  
