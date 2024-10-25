@@ -1,6 +1,6 @@
 ##  Fabii Columnæ, Lyncei, nobilis Neapolitani, genere Romani,
 
-# Opusculum de Purpurâ : Romæ primùm, 
+# Opusculum de Purpurâ: Romæ primùm, 
 
 ### An. 1616 editum,
 
