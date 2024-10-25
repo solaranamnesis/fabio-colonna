@@ -1,12 +1,18 @@
-##  Fabii Columnæ, Lyncei, nobilis Neapolitani, genere Romani,
+##  Fabii Columnæ, Lyncei, _Nobilis Neapolitani_, _Genere Romani_,
 
-# Opusculum de Purpurâ: Romæ primùm, 
+# Opusculum de Purpurâ
 
-### An. 1616 editum,
+### Romæ primùm, An. 1616. editum,
 
-#### Et nunc iterùm luci datum, operâ ac studio Johann-Danielis Majoris
+#### Et nunc iterùm Luci datum
 
-#### Cujus novissimè accesserunt annotationes quædam.
+### _Operâ ac studio_
+
+## Johann-Danielis Majoris,
+
+### Medicinæ D.
+
+#### _Cujus novissimè accesserunt_ annotationes quædam.
 
 ---
 
