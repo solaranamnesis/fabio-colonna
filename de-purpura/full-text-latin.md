@@ -215,4 +215,25 @@ qui alibi à _Plinio_ Austerus Color in Glauco, et irascenti similis Mari dicitu
 
 *) _lib. 9. cap. 51._
 
+§\. 21. Apud Poëtas pro qualibet Acuminatâ Re acceptum reperimus Muricis nomen. _Virgilius_:
+
+--- --- _et acuto in Murice Remi_  
+_Obnixi crepuére_. --- ---
+
+Inde Muricatum nomen _Plinius_* tribuit Sylvestrium Carduorum cacuminibus, cum dixit: _Utrique Folia pauca spinosa, muricatis cacuminibus_. Quare impropriè Buccino Muricis nomen impositum videtur, cum propter aculeatos sive muricatos orbes, et extuberantes, quos habet Purpurarum genus, qui non sunt in Buccino, ut idem _Plinius_ ait, potiùs Purpuræ convenire sit dicendum; etiamque Muricis Epitheta omnia ab Auctoribus tributa, Purpuris convenire pateat, sicuti Purpura Tyria apud Poëtas; ut apud _Ovidium_:
+
+_Nec quæ de Tyrio Murice Lana rubet._
+
+Et _Horatius_: _Muricibus Tyriis iteratæ vellera Lanæ_.
+
+Et alibi: _Te bis Afro Murice tinctæ vestiunt Lanæ_.
+
+*) _lib. 23. cap. 13._
+
+§\. 22. Tyrius color Purpureus à _Plinio_ Dibapha Purpura dictus est, quia bis tingebatur, et Pelagio primum Vellus mergebatur; quo nomine Purpura intelligitur, alio nomine Pelagia, ut diximus ex eodem _Plinio_* unde Tyrius Murex, est Purpura in Tyro tincta, ex Tyriis Muricibus, scilicet Purpuris. Sed et Murex Tyrius pro colore ipso acceptus fuisse, patet; ut etiam apud _Virgilium_:
+
+--- --- _Tyrioque ardebat Murice Lana._
+
+*) _lib. 9. cap. 37. 38._
+
 ...
