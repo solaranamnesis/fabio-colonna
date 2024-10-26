@@ -191,4 +191,28 @@ qui alibi à _Plinio_ Austerus Color in Glauco, et irascenti similis Mari dicitu
 
 §\. 17. Adde, Lacustres Conchas, sive Turbines, ad Tincturam aptas, nemo Antiquorum prodidit. Quare differre à marinis Infectoriis patet, sicut generis esse nomen. Non mirum igitur, si _Onychem_ eandem à _Plinio_ Ostracium dictam invenimus; Græco forsan more, ex Verbo _Ostracea_, quod universa Testacea complectitur, [GREEK] deductum: sicut _Ostrum_ dici Purpureum colorem, à Testis Marinis latinè, ex _Vitruvio_ jam retulimus. Easdem Vires crematis Operculis palustris Conchylii _Dioscorides_ reliquis marinis Purpuris tribuit.
 
+§\. 18. Sic etiam malè intellectus _Plinii_ Sensus in Textu adducto ab iisdem dici potest, ibi*: _Et per se Conchylio infecta Lana magnopere prodest_; Aurium scilicet malis; ut etiam apud _Galenum_: [GREEK], sive [GREEK]. Et apud _Dioscoridem_, [GREEK], _Eodem_, scilicet, _modo uruntur Lanæ, marinâ Purpurâ infectæ_, sive _Lanæ flocci_. Illud [GREEK] idem cum Lanâ Conchylio infectâ _Plinii_.
+
+*) _lib. 2. cap. 83._
+
+§\. 19. Nec etiam Conchylium à _Plinio_ Buccini loco acceptum putamus; ut alii; sed potiùs pro ipsâ Purpurâ, ex quâ tingitur; cum Purpura sine Buccino non rubescat, et ad cœruleum tendat, ut supra diximus de Pelagiis, Calculosis dictis ab eodem _Plinio_* qui varias Purpurarum species recitat ibi, à loco nomine desumto. Quare de Conchylio jam satis dictum censemus.
+
+*) _lib. 9. cap. 37._
+
+§\. 20. Sed non minor in Muricis nomine Observatio facienda est, ut quid sit propriè, quomodo sit à _Plinio_ aliisque acceptum, et quid differat à Purpurà, vel Buccino, innotescat. Murex nomen pro communi genere Testatorum omnium, à _Plinio_* usurpatum, ex _Mutiani_ verbis liquet, de Remorâ loquens, ibi: _Mutianus Muricem esse latiorem purpurâ, neque aspero, neque rotundo ore; neque in angulos prodeunte rostro, sed simplice conchâ, utroque latere se colligente_. Et alibi* pro Turbinatorum genere: _Firmiores jam Testâ Murices, et Concharum genera_. Et pro Turbinatis ad Infecturam idoneis, ibi*: _nec quærit in Profundo Murices_. Et alibi* dixit: _Muricum vel Conchyliorum Testæ cinis_. etc. Quo loco Murex pro Purpurâ, vel Murex pro Turbinatis, et Conchylium pro universis Conchis acceptum videri potest. Et paulò inferiùs: _Muricum genera sunt, quæ vocant Græci Colycia, vel Corythia_: nos Corycia legeremus, à verbo [GREEK]. Quod autem Muricem _Plinius_* pro Buccino dixerit, satis manifestè apparet, cum de Purpuris loquutus est: _Latent, sicut Murices_. Qui locus ex _Aristotele_* transscriptus, habet pro Verbo _Muricis_, [GREEK], ibi: [GREEK]. Ut etiam inferiùs habetur: _Mutuoque attritu Lentorem cujusdam Ceræ salivant, simili modo, ac Murices_. _Aristoteles_ habet, [GREEK]: et idem _Plinius_* de Ortu Testaceorum habet: _Quæ durioris Testæ sunt, ut Murices, Purpuræ, Salivario lentore_, etc. Et inferiùs: _Purpuræ et Murices, ejus demque generis, Vere pariunt_.
+
+*) _lib. 9. cap. 35._
+
+*) _lib. 9. cap. 33._
+
+*) _lib. 2. cap. 2._
+
+*) _lib. 32. cap. 7._
+
+*) _lib. 9. cap. 37._
+
+*) _lib. 5. d. Nat. An. c. 51._
+
+*) _lib. 9. cap. 51._
+
 ...
