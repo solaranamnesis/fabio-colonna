@@ -173,4 +173,22 @@ qui alibi à _Plinio_ Austerus Color in Glauco, et irascenti similis Mari dicitu
 
 *) _lib. 4. Georg._
 
+§\. 13. Colorem hunc Conchylii sine Buccino fieri, tradit idem _Plinius_, eâ ratione, quia Buccinum ad Rubedinem Rosæ, aut Cocco similem, ferè tendit: Purpura verò magis Violaceam emittit Saniem. Ideò leguntur verba illa in _Plinio_: _Rubens color nigricante deterior_: Deinde Pelagio alligari Buccinum, ut ruborem inducat, eâ ratione, quia nimiæ ejus nigritiæ dat Austeritatem illam, nitoremque, qui quæritur, Cocci, ut Sanguinis concreti speciem referat. Color iste Tyrius dicebatur; qui, ut melior effet; priùs Conchylia conficiebantur Pelagio satiatis Velleribus immatura, viridique Cortina non satis cocta, ne nimis evaderet nigricans Conchylium; deinde in Buccini Cortinam permutabatur, ut Ruborem superacciperet, atque ita permixtis viribus utriusque alter altero excitaretur Colore, aut adstringeretur, ut _Idem_ refert.
+
+§\. 14. Conchylium postremò dictum fuisse Colorem hunc, eâ ratione videri potest, ut sicut Ostrum ab Ostraceis derivatum esse existimatur, sic Conchylium à Conchis vel Conchulis marinis; quod Etymon _Isidorus_* habet. Et apud Græcos [GREEK] etiam pro omni Testaceorum genere, maximè vesco, apud _Pollucem_* dictum invenitur. Sed clariùs apud _Athenæum_* ex _Epicharmo_, ibi: [GREEK] etc. _affer omnigena Conchylia, Lepades, etc._ Et inferiùs ex _Diocle_: [GREEK], etc. _Ex Conchyliis excellere ait alvo movendo, etc lotio ciendo, Mytulos, Ostrea, Pectines, etc._ Et inferiùs: _Conchyliorum firmissimas Conchas, Purpuras et Buccinum_.
+
+*) _lib. 19. Orig. c. 28._
+
+*) _lib. 6. c. 15._
+
+*) _lib. 3._
+
+§\. 15. Ex his denique rejicienda est eorum opinio, qui _Dioscoridis_ Testimonio uti volunt, ex Onychis historiâ decerpto; ubi, _Crematum_, inquit, _Conchylium idem efficit, quod Purpura et Buccinum_. Et sic esse ab illis animal sive Testaceum distinctum. Sed nos à Purpurâ et Buccino distinctum Conchylium hoc esse _Dioscoridis_ putamus, non quia specie differat, cum sit genus Concharum sive Turbinatorum; sed quia sit _genus Palustre_, non marinum; sit que _Aromaticum_, ut _Idem_* refert, depascentibus illis Conchyliis Nardum herbam: quod Purpuram et Buccinum haut facere, quisquam refert.
+
+*) _lib. 6. de Dorycnio._
+
+§\. 16. Nec minùs quàm alii hoc loco _Dioscoridem_ Conchylium pro genere Concharum sive Turbinatorum usurpasse censemus, ut ex Ipsius historiâ liquet, et alibi etiam, cum inquit: [GREEK]: _Et omnia Conchylia, cruda, quàm tosta comesa_ etc.
+
+§\. 17. Adde, Lacustres Conchas, sive Turbines, ad Tincturam aptas, nemo Antiquorum prodidit. Quare differre à marinis Infectoriis patet, sicut generis esse nomen. Non mirum igitur, si _Onychem_ eandem à _Plinio_ Ostracium dictam invenimus; Græco forsan more, ex Verbo _Ostracea_, quod universa Testacea complectitur, [GREEK] deductum: sicut _Ostrum_ dici Purpureum colorem, à Testis Marinis latinè, ex _Vitruvio_ jam retulimus. Easdem Vires crematis Operculis palustris Conchylii _Dioscorides_ reliquis marinis Purpuris tribuit.
+
 ...
