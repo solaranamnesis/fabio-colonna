@@ -20,9 +20,9 @@
 
 ---
 
-# [Caput 1. --- De Purpurâ Testaceo, Purpuram fundente, et Ejus Animali.]()
+# [Caput 1. --- De Purpurâ Testaceo, Purpuram fundente, et Ejus Animali.](#caput-1-----de-purpurâ-testaceo-purpuram-fundente-et-ejus-animali-1)
 
-# [Caput 2. --- Cochleæ Iänthinæ cum Animali, exactior Icon et Historia.]()
+# [Caput 2. --- Cochleæ Iänthinæ cum Animali, exactior Icon et Historia.](#caput-2-----cochleæ-iänthinæ-cum-animali-exactior-icon-et-historia-1)
 
 ...
 
