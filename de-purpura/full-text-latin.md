@@ -20,6 +20,12 @@
 
 ---
 
+# [Caput 1. --- De Purpurâ Testaceo, Purpuram fundente, et Ejus Animali.]()
+
+# [Caput 2. --- Cochleæ Iänthinæ cum Animali, exactior Icon et Historia.]()
+
+...
+
 ---
 
 ### _Reverendissimo ac Serenissimo Principi ac Domino_,
