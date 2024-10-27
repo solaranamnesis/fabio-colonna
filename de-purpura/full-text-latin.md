@@ -24,9 +24,9 @@
 
 # [Caput 2. --- Cochleæ Iänthinæ cum Animali, exactior Icon et Historia.](#caput-2-----cochleæ-iänthinæ-cum-animali-exactior-icon-et-historia-1)
 
-# [Caput 3. --- Turbo Exoticus Umbilicatus.]()
+# [Caput 3. --- Turbo Exoticus Umbilicatus.](#caput-3-----turbo-exoticus-umbilicatus-1)
 
-# [Caput 4. --- Buccinum parvum nostras, cum Animali.]()
+# [Caput 4. --- Buccinum parvum nostras, cum Animali.](#caput-4-----buccinum-parvum-nostras-cum-animali-1)
 
 ...
 
