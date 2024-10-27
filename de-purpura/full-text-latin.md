@@ -283,4 +283,25 @@ Et _Isidorus_* refert: _Murex Cochlea est Maris, dicta ab acumine et asperitate,
 
 §\. 33. Sed ad Testam redeamus propositam. Intùs lævis est, Vitri modo splendens, colore obsoletè purpureo, vel cœruleo, aut flavicante, obliquè percurrentibus purpuro-nigris Maculis ex Oris margine in internâ ventriosâ parte. Operculum habet rugosum, tenue, fuscum, animalis capiti annexum et innatum, incrementum accipiens cum ipso Animali: nota est, rugosa superficies orbiculatim. Animal continet, effigie Cochleæ terrestris, carne flavicante, densis Maculis, ex cœruleo purpurantibus depicta, aliis exiguis luteis immixtis, præfertim in cervice. Corniculis verò à Terrestri Cochleâ variat: hujus quidem in acutum desinunt, et Oculi non in summo, ut in Terrestribus, sed supra medium Corniculorum observantur, ubi cornicula veluti resecta, per longum tenuiora efficiuntur. Oculis verò aliquando tueri Corniculis supra illos incurvatis, ut in Picturâ notatur, observavimus; ac etiam partem illam, supra Oculum, Corniculorum contrahere, ut nonnisi reliquum appareat, in Oculos desinens, crassius. At quando intueri putatur recta, tota exserta et firma Cornicula, extensaque habet.
 
+§\. 34. Differt etiam, quia Linguam ex Canali exserit, parum extra Canalem, Cochleis deficientem, colore purpureo, et ab illâ Aquam exspuere vidimus, fistulæ modo, contrahentem, branchiarum vicem explentem. Cum graditur, Limbo utitur extenso, ut Cochlea, Corpus deinde contrahens, iterumque Limbum producens, quem latum habet. Testam aliquando gaudet circumagere, illam in totum extollens, corpore in basis modum ad hoc elato. Colore tantùm obscuriore differt ab aliis vulgaribus aculeatis Purpuris _Rondeletii_, dictis etiam _Sconcigli Spinosi_ vulgò; sicut et hæc etiam _Sconciglio_ appellatur, sed aliis distinctiùs vulgò _Carosa_ nomine dicitur, quasi spinis detonsa et carens, quam copiosè Neapoli propè Urbem in arenosis Piscatores venantur, Pulmonum frustulis, junceis Cratibus superimpositis allicientes, ut _Aristoteles_ olfacere censuerit.
+
+§\. 35. Hanc Littoralem potiùs, in Arenosis degentem, quamvis in profundo Mari, diceremus Purpuram, purpurocœruleum colorem fundentem: sed quare non omnes Purpuram fundant ejusdem generis, et eodem tempore captæ inter quamplurimas, quæ tot anno capiuntur, et semper aliquæ colorem habeant, hucusque ignorare fatemur.
+
+§\. 36. Venales habentur in foro quotidie; Cibis quidem expetuntur, elixæ ac tostæ, vel aliis modis. Capiuntur etiam propè Misenum Promontorium in Puteolano Mari, loco, nunc vulgò _Mare Mortuum_ appellato, ubi Maris æstus non recipitur, Portusque censetur olim ab Agrippâ et Augusto constructus. Hujus tantùm Testæ effigies ab aliis Recentioribus vario nomine imposito conspicitur depicta; à nemine verò hucusque interno Animali observato, nedum purpuream Saniem fundente. _Plinius_ Puteolanas Purpuras laudat: an de his intellexerit, aliorum sit judicium. Capiuntur etiam toto Maritimo tractu Australi, in Sinu Formiano olim dicto, nunc Molæ oppidi, ubi primùm in Mensâ tostas esitantes Purpuram fundere, et digitos, et linteos inficere observavimus.
+
+§\. 37. Harum usum, sicuti Buccinorum, non tantùm propter inscitiam ac magnam impensam ac molestiam neglectum putamus; sed ob maximam Fuci copiam, quem vulgus _Roccella_ denominant, quo nunc Infectores pulcherrimam Purpuram conficiunt, Sericia inficientes variis colorum gradibus, minore labore ac impensâ, et maximo lucro: tantùmque nobis hodie cùm Esca sint, non possunt _Martialis_ exprobrationem evitare, cum inquit:
+
+_Sanguine de nostro tinctas, Ingrate, lacernas_  
+_Induis; et non est hoc satis: Esca sumus._
+
+§\. 38. Tarenti hucusque accepimus, Officinarum vestigia Purpurariorum conspici, atque etiam ex Testarum fragmentis acervos esse, quæ olim forsan, ut _Plinius_ refert, Augusti tempore fuere, Nepotis Cornelii testimonio, ibi*: _Me_, inquit, _juvene Violacea Purpura vigebat, cujus libra denariis centum veniebat, nec multò post rubra Tarentina_.
+
+*) _lib. 9. cap. 29._
+
+§\. 39. Rubens Color nigricante deterior, à _Plinio_ dicitur; nisi Color sit nigricans adspectu Sanguinis concreti, qui non sine utriusque, Purpuræ et Buccini, mixturâ fieri poterat, quâ vel Amethysti, vel Tyrii, juxtà medicaminis quantitatem, Color fiebat, ut idem _Plinius_* retulit.
+
+*) _lib. 9. cap. 38. et inde._
+
+# Caput 2. --- _Cochleæ Iänthinæ cum Animali, exactior Icon et Historia._
+
 ...
