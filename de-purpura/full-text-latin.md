@@ -310,4 +310,10 @@ _Induis; et non est hoc satis: Esca sumus._
 
 # Caput 2. --- _Cochleæ Iänthinæ cum Animali, exactior Icon et Historia._
 
+Depinximus atque descripsimus hanc, à Nobis aliàs obiter observatam Cochleam minùs rectè. Nunc autem Anno 1609. in oppido, dicto _Torre della Nuntiata_, in Vesuvii Montis radice, ad Maris oram, inter Pompejanum et Stabii Ruinas, Majo Mense, flantibus Occidentalibus, maximoque Maris impetu illic æstuantibus undis, abjectas inter alia Cochleas multas, ex his adhuc viventes colligi curavimus: Maris Aquâ repleto quodam vase, Conchisque injectis, ut vivere possent, illarum Animal observavimus prodiens.
+
+§\. 2. Abomnibus Cochlearum Terrestrium et Maritimarum Animalibus reliquis, quas hucusque vidimus, hujus Animal valdè differt. Huic Penis arrecti facies est, glandem habens, in cujus extremo Fabam exprimit, rimam pro ore in medio, fœmininum ferè Sexum referens, rubescente magis internâ parte, cum reliquum Animal ex obsoletâ cœruleâ Purpurâ candicet: circà medium utrimque Appendices habet binas, quarum altera exterior major; earumque acies magis saturo colore purpurascunt.
+
+§\. 3. Ima pars Animalis propè testam rugosa est, et denique limbosa, ut in congeneribus; non tàm oblonga, nec acuta, sed rotundior; sub quâ copiosam, extuberantem satis, atque veluti cartilagineam Spumam vitream fundebant omnes, non secùs, ac aquâ diluto sapone multo, et concussâ, atque paleæ vel alterius rei exiguâ fistulâ intinctâ, et inflatâ, paulatim evenit, ut puerorum mos est Neapoli; quæ Sphærulæ veluti vitreæ inflantur, et denique à fistulâ dimittuntur ex fenestris. Jocum non jucundum!
+
 ...
