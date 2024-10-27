@@ -314,6 +314,24 @@ Depinximus atque descripsimus hanc, à Nobis aliàs obiter observatam Cochleam m
 
 §\. 2. Abomnibus Cochlearum Terrestrium et Maritimarum Animalibus reliquis, quas hucusque vidimus, hujus Animal valdè differt. Huic Penis arrecti facies est, glandem habens, in cujus extremo Fabam exprimit, rimam pro ore in medio, fœmininum ferè Sexum referens, rubescente magis internâ parte, cum reliquum Animal ex obsoletâ cœruleâ Purpurâ candicet: circà medium utrimque Appendices habet binas, quarum altera exterior major; earumque acies magis saturo colore purpurascunt.
 
+[]()
+
 §\. 3. Ima pars Animalis propè testam rugosa est, et denique limbosa, ut in congeneribus; non tàm oblonga, nec acuta, sed rotundior; sub quâ copiosam, extuberantem satis, atque veluti cartilagineam Spumam vitream fundebant omnes, non secùs, ac aquâ diluto sapone multo, et concussâ, atque paleæ vel alterius rei exiguâ fistulâ intinctâ, et inflatâ, paulatim evenit, ut puerorum mos est Neapoli; quæ Sphærulæ veluti vitreæ inflantur, et denique à fistulâ dimittuntur ex fenestris. Jocum non jucundum!
+
+§\. 4. Copiosum spontè evomunt Conchæ istæ succum Purpureum Violaceum, ut seipsas inficiant et colligentium manus: et paxillo, vel acu sauciatâ Animalis cervice, tres aut quatuor guttæ ex testâ decidunt, et quidquid tangunt, inficiunt, purpureo cœruleo colore admodùm hilari, ut nihil suprà commendari possit; charta vel album aliud Lineum infectum, quandoque variat maculis, colore ad rubrum inclinantibus: adeòque infectura hæret, ut vix lotione ex mi queat; undè et ipsa Testa infecta reperitur, quæ, ut diximus aliàs, tenuis est, circa imas Volutas candicans, tribus tantùm Volutis constructa, Limbo circà umbilicum elato admodum, quod nec in aliis Cochleis observatur, et ab illis differre hâc etiam notâ conspicitur.
+
+# Caput 3. --- _Turbo Exoticus Umbilicatus_.
+
+[]()
+
+§\. 1. Hunc Romæ apud quendam industrium hominem cum aliis non negligendis testis vidimus, atque raritate allecti, iconem delineavimus, notasque addidimus. Differt ab aliis Recentiorum, et à me descriptis, quod obtusus sit cacumine, circa medium tenuior; deindè æneæ nolæ effigie in latitudinem se diffundens, atque, quod præcipuum huic est, in medio Umbilicatus.
+
+§\. 2. Crassa est Testa, gravis, cortex superior rugosus, candicans, ad pallidum vergens; maculis obliquis roseo colore variegatus tam circa Umbilicum, quàm in reliquis Volutis; derasus, vel cortice extimo mundatus, argenteo Margaritarum nitore quodammodo splendet, non admodum, ut in parvis nostratibus, nitido.
+
+§\. 3. Quinque Voluminibus definitur: inter quæ veluti limbus apparet. Similis quodammodò Turbo hic videtur pyramidali Trocho _Aldrovandi_; sed illius nulla exstat delineatio, nec Umbilicus apparet; triunciali Diametro quoque versu, ut æquilaterum retusis angulis trigonum repræsentare videatur.
+
+# Caput 4. --- _Buccinum parvum nostras, cum Animali_.
+
+[]()
 
 ...
