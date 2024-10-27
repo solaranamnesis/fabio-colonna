@@ -236,4 +236,33 @@ Et alibi: _Te bis Afro Murice tinctæ vestiunt Lanæ_.
 
 *) _lib. 9. cap. 37. 38._
 
+§\. 23. _Nomenclator Latinus_ in Verbo Murex, Muricem à Græcis Conchylium dici putat, esseque Purpuræ speciem, Mensis expetitam. Ad id _Martialem_ citat, qui ait:
+
+_Sanguine de nostro tinctas Ingrate lacernas_  
+_Induis: et non est hoc satis; Esca sumus._
+
+Et _Isidorus_* refert: _Murex Cochlea est Maris, dicta ab acumine et asperitate, quæ alio nomine Conchylium nominatur, propter quod circumcisa ferro, lacrymas coloris purpurei emittat, ex quibus Purpura tingitur, et inde Ostrum appellatum; quod appellatum, quod hæc Tinctura ex Testæ humore elicitur._
+
+*) _lib. 2. origin. cap. 6._
+
+§\. 24. His igitur jam satis apertè ostensum fuisse arbitramur, Conchylium et Muricem esse Purpuræ Synonyma, quorum alterum à Conchis nomen, alterum ab Aculeis, qui alio nomine Murices dicuntur, sumsisse apparet: Purpuræ verò appellationem non solùm pro ipso Testaceo Animali accipi, sed etiam pro ipsa Tincturâ, et Colore; ut à _Plinio_,* ibi: _Sed quota hæc portio est, reputantibus Purpuras, Conchylia, et Margaritas?_ Et alibi*: _Conchylia et Purpuras omnis ora atterit_. Et* de Carthagine: _Nunc omnis ejus Nobilitas Conchylio atque Purpurâ constat_. Et alibi,* de Purpureo colore pingendo verba faciens: _Si Purpuram facere malunt, cœruleum sublinunt, mox Purpurissum ex Ovo inducunt_. Purpurissum verò, _eodem autore_, fit ex Cretâ Argentariâ et Purpuræ Sanie, quod idem cum Ostro _Vitruvii_ esse videtur. Et alibi* manifestiùs: _Concharum ad Purpuras et Conchylia eadem est materia, sed distat Temperamento_; ut suprà retulimus.
+
+*) _lib. 9. cap. 35. initio._
+
+*) _ibid. in sine._
+
+*) _lib. 5. cap. 19._
+
+*) _lib. 35. cap. 6._
+
+*) _lib. 9. cap. 36._
+
+§\. 25. Quid autem distet Purpura à Conchylio, nunc videndum. Nam etiam objicitur, _Plinium_ distinxisse Purpuram à Conchylio, cum inquit: _Sed quota hæc portio est, reputantibus Purpuras, Conchylia, et Margaritas?_ Et alibi: _Conchylia et Purpuras omnis ora atterit_: et similia aliis locis. Quibus responsum jam esset ex supra memoratis observationibus; sed distinctiùs, ut omnia sint clara, addimus: Purpuram his locis à Conchylio esse distinctam, non Materiâ, quæ eadem est, (ut idem _Plinius_ retulit, cum dixit: _Concharum ad Purpuras et Conchylia eadem est materia_,) sed Colore. Nam, ut diximus, Purpura rubescit; Conchylium simile Violæ Purpureæ. Adde; Purpureo colori admixtum est Buccinum, quo carere asseritur Conchylium. Sed aliis locis à Conchylio distinguitur, tanquam Species à Genere; ut, cum idem _Plinius_ dixit: _Lingua Purpuræ Logitudine digitali, quâ pascitur perforando reliqua Conchylia_: Et similibus, ibi, _Conchylia_ genus est non modò Turbinatorum, sed etiam Concharum omnium.
+
+§\. 26. Hâc denique Distinctione facilior remanet Purpuræ Animalis investigatio, à nemine traditi; sed nec forsan à quopiam Recentiorum visi, quamvis illius Historia satis ab _Aristotele_* et _Plinio_* descripta inveniatur: quam hîc inserere et repetere, multum molestumque esset. Illas tantùm notas recitabimus, quas in testaceo à Nobis proposito, observare licuit.
+
+*) _lib. 4. de N. Animal. c. 4. et lib. 5. c. 15._
+
+*) _lib. 9. cap. 36. et inde._
+
 ...
