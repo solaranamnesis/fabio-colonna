@@ -314,7 +314,7 @@ Depinximus atque descripsimus hanc, à Nobis aliàs obiter observatam Cochleam m
 
 §\. 2. Abomnibus Cochlearum Terrestrium et Maritimarum Animalibus reliquis, quas hucusque vidimus, hujus Animal valdè differt. Huic Penis arrecti facies est, glandem habens, in cujus extremo Fabam exprimit, rimam pro ore in medio, fœmininum ferè Sexum referens, rubescente magis internâ parte, cum reliquum Animal ex obsoletâ cœruleâ Purpurâ candicet: circà medium utrimque Appendices habet binas, quarum altera exterior major; earumque acies magis saturo colore purpurascunt.
 
-[]()
+[Figura]()
 
 §\. 3. Ima pars Animalis propè testam rugosa est, et denique limbosa, ut in congeneribus; non tàm oblonga, nec acuta, sed rotundior; sub quâ copiosam, extuberantem satis, atque veluti cartilagineam Spumam vitream fundebant omnes, non secùs, ac aquâ diluto sapone multo, et concussâ, atque paleæ vel alterius rei exiguâ fistulâ intinctâ, et inflatâ, paulatim evenit, ut puerorum mos est Neapoli; quæ Sphærulæ veluti vitreæ inflantur, et denique à fistulâ dimittuntur ex fenestris. Jocum non jucundum!
 
@@ -322,7 +322,7 @@ Depinximus atque descripsimus hanc, à Nobis aliàs obiter observatam Cochleam m
 
 # Caput 3. --- _Turbo Exoticus Umbilicatus_.
 
-[]()
+[Figura]()
 
 §\. 1. Hunc Romæ apud quendam industrium hominem cum aliis non negligendis testis vidimus, atque raritate allecti, iconem delineavimus, notasque addidimus. Differt ab aliis Recentiorum, et à me descriptis, quod obtusus sit cacumine, circa medium tenuior; deindè æneæ nolæ effigie in latitudinem se diffundens, atque, quod præcipuum huic est, in medio Umbilicatus.
 
@@ -332,6 +332,6 @@ Depinximus atque descripsimus hanc, à Nobis aliàs obiter observatam Cochleam m
 
 # Caput 4. --- _Buccinum parvum nostras, cum Animali_.
 
-[]()
+[Figura]()
 
 ...
