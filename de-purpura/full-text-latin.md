@@ -28,6 +28,16 @@
 
 # [Caput 4. --- Buccinum parvum nostras, cum Animali.](#caput-4-----buccinum-parvum-nostras-cum-animali-1)
 
+# [Caput 5. --- Buccinum Exoticum parvum.]()
+
+# [Caput 6. --- Lepas Exotica variegata; et Lepas nova, Myrti Morbus.]()
+
+# [Caput 7. --- Turbo Terrestris non-descriptus.]()
+
+# [Caput 8. --- Turbo alter Minor.]()
+
+# [Caput 9. --- Cochlea Terrestris Turbinata, et striata.]()
+
 ...
 
 ---
