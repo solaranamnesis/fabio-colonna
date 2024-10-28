@@ -420,4 +420,64 @@ Est et alter, simili modo ex sinistrâ parte in dexteram convolutus, non adeò f
 
 # Caput 11. --- _Concha πολυλεπτογίγγλυμος_.
 
+§\. 1. Pluribus hæc testa notis ab aliis Conchis differt, propriamque habet notam, innumeram seriem exiguorum cardinum, rectâ per obliquum lineâ, et admodùm longâ, Testæ connexum, efficientium; quod hactenus in aliis minimè observavimus.
+
+§\. 2. De hâc etiam _Plinium_* sensisse, dici posset, Concharum varietates enumerantem, cum ad differentiam earum, quæ brevi nodo ligantur, ut sunt vulgares, ait, (_Toto latere Connexis_) quod in hâc rectè conspicitur; quamvis de Solene etiam intelligatur.
+
+*) _lib. 9. cap. 33._
+
+[Figura]()
+
+§\. 3. Differt Cervice ad latum obliquè dependente: quod quamvis aliis testis etiam sit commune, quia hujus longiùs à connexu abest, planâ remanente inter cervicem et cardines testâ veluti recisâ, et complanatâ, Lineis multis undosis sculptâ; non parum ab aliis evariat: crassa insuper est respectu molis testa, externè admodum densè striata, ac etiam obliquis densioribus rugis exasperata, ut imbricata etiam dici possit. Internâ parte circâ os tantùm brevibus striis connectitur dentium vice; reliquâ cavâ, levi.
+
+§\. 4. Ex hujusmodi, Conchæ in Montanis obrutæ, atque temporis diuturnitate corruptæ, terrâque illâ in saxeam naturam versâ, lapides illi, Cordis figuram æmulantes, construuntur, cavam Conchæ partem replentes, quos vulgò Bucardia vocant: quorum plures apud nos varietates, juxtà Concharum et locorum differentias, effigie, materiâque provenientes videre licet; quamplurimas apud _Imperati_ Muséum amplissimum.
+
+# Caput 12. --- _Concha rarior Anomia, Vertice rostrato_.
+
+§\. 1. Anomias Conchas illas esse dicimus, quarum altera pars cohærens aliquo modo, ab alterâ, Effigie aut magnitudine, aut utroque modo differat. [GREEK] siquidem contrarium est Verbi [GREEK], quod est, _Similis, Par, Æqualis_; scilicet _Dissimilis, Impar, Inæqualis_. Ideò inter cæteras notas à _Plinio_* memoratas, quibus Concharum varietates distinguit, plurimas, cum Inæqualitatis Notam non invenerimus, Anomias Conchas appellare libuit; vel _Plinii_ more illas, _Vertice Rostrato_ dicere; quarum etiam Differentiæ sunt plures.
+
+*) _Loco antè-cit._
+
+§\. 2. Nunc de hâc in Civitate Andriæ repertâ, verba faciemus: in quo Loco si quis curiosior perquirere vellet illas etiam Rariores, non paucas inveniet adhuc incognitas et invisas: Naturamque in his eftormandis multùm lusisse animadvertet.
+
+§\. 3. Hujus igitur Effigies lævis, depressa, parùm oblonga, ab aliis Conchis in hoc præcipuè differens, quod altera Conchæ pars oblongior est, collum, cervicemque totam, quæ oblongior est, et rotundior, atque acutior, prominetque, suprà cervicem alterius diffundit, ut infrà illius collum altera cervix connectatur. Concha parva est, candida, tenuis, obliquè parum additamentis rugosa, sed non ob id aspera, sed levis.
+
+[Figura]()
+
+§\. 4. Repletam invenimus candidâ _tophaceâ Concretione_, quâ totus ille clivosus locus, sive collis, est editus, qui non magis terrenâ concretione tophaceâ, quàm variarum concharum fragmentis, et integis etiam innumeris, est compactus, hanc et alias in vallecula illâ, sive fossâ quâdam, parum subtùs Ecclesiam D. Mariæ de Andriâ, extra urbem milliari sitâ, excepimus: illic enim, ob gratias à Sanctissimâ DEI Genitrice acceptas referendas, fuimus, sicuti et alii magnâ cum frequentiâ vota solventes, concurrunt quotidie. Ecclesia quidem illa magnis donis et Miraculorum Signis ornatur; nec non sumtuosâ Structurâ, ipsa Ecclesia et Monasterium.
+
+[Figura]()
+
+§\. 5. Hujus similem apud doctissimum _Imperatum_ nostrum in suo Muséo, rerum omnium Naturæ satis copioso Thesauro, observavimus; quæ margine erat parum undosa, et longiore Conchæ parte canalem vix conspicuum in dorso, altero verò medio, contrario modo extuberante: omnesque peculiari notâ sunt præditæ, quod cervice prominente rostratâ, pertusâ, oriuntur, quâ turbinatorum more Aquam haurire et exspuere, sylvestris Lepadis, aut Auris marinæ modo, possunt. Icon magnitudinem æquat. Huic _similem_ majorem multò, _Lapideam_, depinximus in _Prima parte_, nomine _Conchæ gibbosæ_.
+
+# Caput 13. --- _Altera Neptunia major 3. Imbricata_.
+
+§\. 1. Duplò majorem alteram Neptuni reperimus Albanen. diœcesis etiam undosa, margine in _Tophaceis_ sive sabulosis illis _Concretionibus_, in quibus Castelli sive Arcis fossa est, et maxima variarum Testarum congeries conspicitur: nec unam repieries integram; sed omnes inter se congestas et implicatas, ut non Naturâ, sed maris impulsu fractas, et ejectas cum Sabulone, et molem illam tophaceam construxisse testarum fragmentis repletam, sit censendum: quare Mare aliquando variis in regionibus excrevisse et æstuasse satis constat, locaque immutata.
+
+§\. 2. Mirum quidem est hujusmodi testas recentes, et vivas hodiè non reperiri, quamobrem è longâ Maris alluvione profectas, et advectas censemus potiùs, quàm Naturam desiisse, similes parere. Tres pollices longa, duos lata est testa, habetque in medio veluti alteram concham super-elatam imbricis modo, ut in aliis observatur, præsertim Pectunculis.
+
+# Caput 14. --- _Concha Anomia 4. margine Undosa_.
+
+Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam repleta erat Concretione candidâ terreâ, et quod margine sit undosâ in spiras contortâ, M. literam repræsentante, dorsumque habeat elatum, non cavum; alterâ parte triplici canali distinguatur. Sed omnes cervicem habent perforatam. Ex _Imperati_ nostri Muséô habuimus inter alias.
+
+# Caput 15. --- _Concha altera Anomia, striata, τρίλοβος, rario 1_.
+
+§\. 1. Ex eodem genere et hæc videtur, major Concha et crassior; cujus obesa Valva minor est, atque tribus simul junctis Testis, mediâ magis extuberante, constructa videtur, et senis striis, totidemque strigibus in singulis Lobis, quibus margines denticulatæ fiunt, insecta; præterquàm pars interjecta inter Lobos, quæ rectâ lineâ marginem definit. Alterâ parte, quâ valvæ in caput prominet, medium habet Lobum depressiorem, et oblongiorem, reliquis à latere brevioribus, et elatis, eodemque modo striatis; quâ parte tota Concha expansis alis aviculam incurvam repræsentare videtur. Conchæ cortex, castaneo colore fuit, ut ex fragmento, quod in cervice adhærebat, observavimus.
+
+[Figura]()
+
+§\. 2. Lapideam quidem naturam interior pars, cujus effigiem damus, adepta erat, colore ob vetustatem flavicante; intus verò, candicante. Et hæc ex ditissimo naturæ promptuario _Imperati_.
+
+§\. 3. Harum et parvas, Avellanæ nucis magnitudine, binas habemus, quarum altera paucis, altera verò pluribus, et tenuibus striis est dissecta, reliquis eandem effigiem retinentibus: orbiculatæ sunt, et metallicâ substantiâ concretæ.
+
+§\. 4. Hæ omnes Anomiæ brevi Nodo ligantur, ob Cervicis angustiam: et forsitan à _Plinio_* sub illâ differentiâ, his verbis expressâ, (_brevi Nodo ligatis_) quæ multis Concharum generibus etiam convenit, comprehensæ, ut suo loco dicemus.
+
+*) _lib. 9. cap. 33._
+
+§\. 5. Aliam exiguam admodùm, lapideam, idem _Imperatus_ communicavit, quæ veluti gemma nitida est, cervice cœruleâ, reliquis obscurioribus, et lateribus flavicans.
+
+§\. 6. Differunt ab aliis supradictis, quod cervix foramine caret; et ideò quamvis Testa sit affinis, animal non idem naturâ erit, cum hiare oporteat, ut aquam haurire, et exspuere possit, non habens testam in cervice perforatam, ut quatuor superiores.
+
+# Caput 16. --- _Concha Fasciata, Gemmeâ Conretione repleta_.
+
 ...
