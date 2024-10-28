@@ -38,6 +38,10 @@
 
 # [Caput 9. --- Cochlea Terrestris Turbinata, et striata.](#caput-9-----cochlea-terrestris-turbinata-et-striata-1)
 
+# [Caput 10. --- Cochlea Marina Exotica Marmorea.]()
+
+# [Caput 11. --- Concha πολυλεπτογίγγλυμος]()
+
 ...
 
 ---
