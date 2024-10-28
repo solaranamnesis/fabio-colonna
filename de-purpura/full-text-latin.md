@@ -396,4 +396,24 @@ Est et alter, simili modo ex sinistrâ parte in dexteram convolutus, non adeò f
 
 # Caput 9. --- _Cochlea Terrestris Turbinata, et striata_.
 
+§\. 1. Quia in modum Turbinis producit Volutas, Turbinatam Cochleam appellare libuit. Quinque constat Anfractibus: et quia distinctiùs Orbes percurrit in longum, more Turbinum producitur testa, Umbilicum ferè relinquens in centro, et eodem orbium ordine striantur orbes perquam densè, ut elegantissima videatur. Os rotundum habet, quemadmodum orbis desinit; geritque Operculum crassum et cohleatum, ut in marinis observatur. Colore ex pallido flavicant magis, minusvè.
+
+[Figura]()
+
+§\. 2. Terrestres has Cochleas, ut ab aliis diversas, et rariore effigie, relictis aliis multis, huc intrudere, ad excitandum studiosorum animos, et addere visum fuit, qui Montes tantùm habent propinquos, Mare verò longo intervallo disjunctum, ut pulcriora quærant.
+
+# Caput 10. --- _Cochlea Marina Exotica Marmorea_.
+
+§\. 1. Variat hæc à maritimis nostratibus crassitie testæ, atque hiatu, qui non rotundus, nec à columellâ, ut in aliis, definitur, sed parte mediâ testæ, rectâ ferè Lineâ, et planâ, obliquè veluti recisa testa conspicitur: et in anteriore, et rotundâ parte cochleæ parum infrà extremum observantur denticuli plures elati; ac etiam ex adverso in medio lineæ veluti Concharum cardines; quare Operculo quodam crasso fortè tegi posse suspicamur, alio quàm in nostratibus modo.
+
+§\. 2. Differt etiam, quia unicâ tantùm Volutâ sive circuitione definitur, illâque vix conspicuâ. Maculis in cute nigris, magnis, inordinatis insignitur, et per obliquum rugis etiam vix apparentibus circà os exasperatur.
+
+[Figura]()
+
+§\. 3. Huic similem _Aldrovandus_ pro _Nerite_ suo de Testaceis volumine, tertio et quarto Loco depinxit, colore variantem: quantùm verò à Nerite Antiquorum distet, jam aliàs diximus, tàm brevem crassamque testam natare minimè posse; nec illum observasse censemus.
+
+§\. 4. Variant magnitudine, testæ crassitie, nam alias vidimus nigras foris, intùs candidas, tenuioris testæ, quæ clathrata Lineis erat per rectum et obliquum: alteram candidam intùs, crassâ testâ et majore, foris colore cinereo, maculis parvis albis, rugis obliquè profundioribus, ut quodammodo aspera sit tangenti.
+
+# Caput 11. --- _Concha πολυλεπτογίγγλυμος_.
+
 ...
