@@ -338,4 +338,52 @@ Depinximus atque descripsimus hanc, à Nobis aliàs obiter observatam Cochleam m
 
 [Figura]()
 
+§\. 1. Buccinum hoc frequentissimum in nostris scopulis littoralibus Neapoli, et in Foro Piscatorio; nam esculentum est, atque cibo gratum, facilisque digestionis. Hujus Animal magnum est respectu Testæ; Caro ex flavo albicat; Corpus variegatum obscuris micis purpureis, et infernè parum ad cœruleum tendens; Limbo, ut Cochleæ, graditur lato, in extremâ posteriore parte bisulco, veluti insectum, caudato. Cervix crassa est, lata, in cujus lateribus Cornicula, ut in Purpurâ diximus, in medio veluti resecta; in quibus oculi eodem illo modo insunt, atque natura: Linguam habet longam admodùm, canaliculatam, ex quâ Aquam haustam exspuit: et cum graditur, elatam gerit, et incurvam ex adverso. Convolvitur confestim quoquo versu, et supinè cum impetu quodam, inter alia congenera manens in catino reposita, et vivens, ignoramus an præ timore contactûs aliorum.
+
+§\. 2. Testa levis est, parva, et obeso admodùm superiore orbe, pollicis ad summum magnitudine, flavicans: sed circà Volutarum imum caftaneis notis diftincta; reliquum verò Testæ variegatum, undosis candicantibus parum lineis. Centri pars cælata conspicitur, ut sunt Turbinuli illi Striati oblongi; quare observandum est, an minimæ aliâ sint effigie?
+
+§\. 3. Operculum animal habet, ut congenerum: et mortuo, vel evanido animali aliquá de causá, vacuam teftam Cancellus hofpitatur, ut etiam in variis teftis obfervatur.
+
+§\. 4. Natatilis Tefta eftcum ipfo animali, ac etiamcum Cancello in aquâ imposita; et Cancelli pes major est sinister. Amplo est ore testa, atque parum in extrema striato. Si quis Neritem hanc esse diceret, nihil nisi magnitudo refragari posset; responderet magis, quàm Cochlearum tot species non turbinatæ, ab aliis propositæ.
+
+# Caput 5. --- _Buccinum Exoticum parvum._
+
+§\. 1. Tuberculis nigro-flaventibus, et Lineis elatis candida Testa exornatur; quæ cassa est et marmoreâ effigie, candidaque.
+
+[Figura]()
+
+§\. 2. Figura parum abest à nostratibus parvis Buccicinis; nec aliud referre ex inani Testâ exterâ postumus.
+
+# Caput 6. --- _Lepas Exotica variegata; et Lepas nova, Myrti Morbus_.
+
+[Figura]()
+
+§\. 1. Magnitudine nostrates grandiores æquat Exotica; et elegans Lepas hæc ab aliis memorata, magis cava, rotundiore ambitu, nec in angulos desinens, colore ad extremam testæ partem flavente, veluti fasciata, maculis fuscis binis per interstitia exornata, interiùs candicante Alabastritidis lapidis modo; in Umbilico verò iterum flavo et splendido colore, animalis umbram fere describente. Exteriùs verò obliquè rugosa parum, colore ex pallido candicante, Maculis radiatim nigro-flaventibus. In supernâ parte flavescit ex russo; Apexque candicat. Dono accepimus à N. V. ac Doctissimo _Francisco Peregrino_, Romæ, cum aliis etiam Rarioribus, Buccino supra-dicto, ut Cochleâ Marmoreâ, aliisque.
+
+[Figura]()
+
+§\. 2. Sed quia hujus Lepadis occasione in mentem venit aliud Lepadis genus, non descriptum, terrestre, quod Morbus est, aut Scabies, sive Impetigo Arborum et fruticum; idemque animal est ex morbo Myrti genitum, testudinatum: Hoc loco iconem et observationem addere non ingratum studiosis fore existimavimus.
+
+§\. 3. Romæ, Anno 1610. in domestico Viridario domûs _Joan. Baptistæ Raimundi_, Viri doctissimi, et Arabicæ Linguæ, et aliarum periti, supra templum Sancti Andreæ _delle Fratte_ appellatum, in quâ degebat, ex Myrti ramis imis adhuc viventes ferè testudinatas Lepades plurimas hærentes collegimus, quarum Iconem ejusdem magnitudinis expressimus, effigie testudinis terrestris, illiusque more, tabellis angulosis constructas, colore cinereo ad Purpuram inclinante, infernâ parte, quâ hærebant caudici, cavas, quarum aliquot adhuc servamus, præter illas, dono Amicis communicatas; nec aliud ex eis notare potuimus.
+
+§\. 4. Impetiginis, Scabiei, et Morbi in Fico et aliis, ortum et causam _Theophrastus_ de Causis Plantarum lib. 5. et de Plantis lib. 4. tradidit: quem Curiosus Lector videre poterit.
+
+# Caput 7. --- _Turbo Terrestris non-descriptus_.
+
+§\. 1. Rarior hic, et præter morem à Naturâ elaboratus, atque à nemine observatus: cujus Orbes non in sinistram partem convolvuntur, ut in omnibus Testaceis marinis ac terrestribus; sed contrario modo ex sinistrâ in dexteram Orbes in amplum os, juxta orbis proportionem, desinunt; incisuram in imo habens, Buccinorum modo, octo vel novem orbibus definitur, in imo flavicantibus, reliquis cinereis ex flavo, et in summo magis candicante novissimo.
+
+[Figura]()
+
+§\. 2. Stamine conjuncti acu videntur orbes, candidis junctis sive Lineis inter orbes micantibus, quibus depinguntur; et oculis gratiores redduntur, ob punctorum distinctionem.
+
+§\. 3. Animal intus, Cochlearum modo, exiguum, ideò neglectum, continet, quamvis Cochlearum usum præstare posset. Testa levis est. Oritur non modò in saxis montanis, et rupibus; sed etiam hortorum, ac etiam domorum parietibus aëri expositis.
+
+# Caput 8. --- _Turbo alter Minor_.
+
+Est et alter, simili modo ex sinistrâ parte in dexteram convolutus, non adeò frequens, qui nitidâ testâ est, et adeò splendidâ, ut arte expolita censeatur, flavicante ex pallido cinereo, quatuor tantùm orbibus composita, oblongiore et angustiore Ore, quia sublimiùs volutæ eriguntur, et ideò oblongiore testâ est proportione, quamvis paucioribus orbibus sit constructa; iisdem locis oritur, ejusdem magnitudinis, ut icon est, tàm superior, quàm Cochlea describenda.
+
+[Figura]()
+
+# Caput 9. --- _Cochlea Terrestris Turbinata, et striata_.
+
 ...
