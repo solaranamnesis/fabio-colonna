@@ -42,6 +42,16 @@
 
 # [Caput 11. --- Concha πολυλεπτογίγγλυμος](#caput-11-----concha-πολυλεπτογίγγλυμος-1)
 
+# [Caput 12. --- Concha rarior Anomia, Vertice rostrato.]()
+
+# [Caput 13. --- Altera Neptunia major 3. Imbricata.]()
+
+# [Caput 14. --- Concha Anomia 4. margine Undosa.]()
+
+# [Caput 15. --- Concha altera Anomia, striata, τρίλοβος, rario 1.]()
+
+# [Caput 16. --- Concha Fasciata, Gemmeâ Conretione repleta.]()
+
 ...
 
 ---
