@@ -490,4 +490,58 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 # Caput 16. --- _Concha Fasciata, Gemmeâ Conretione repleta_.
 
+§\. 1. Morosi videntur Nobis quidam, qui has et similes Concretiones negant, ex Testaceorum internâ cavâ parte sibi effigiem parare, atque Naturam contendunt, propriis initiis Animantibus aut Vegetantibus, Lapideas hasce aut consimiles perficere Conchas et Buccinas, Cochleasque, atque innumera alia.
+
+[Figura]()
+
+§\. 2. Non negamus, quin multa alia sint, propriâ formâ sic concreta; sed nullam illa habent cum cæteris rebus naturalibus, quæ vixerint, communitatem, nec aliquid simile rectè, aut perfectè referunt, ut sunt, quæ locum corruptæ rei replent.
+
+[Figura]()
+
+§\. 3. Inter alia et hæc testimonium perhibebit veritatis, rarissima Conchæ concretio, quæ non externam, sed internam tantùm partem refert, Lineis obliquè ductis gradatim, ut in Testæ internâ parte fuerant, et exiguas Cervices, Lieamque Cardinum et marginis. Tota terreâ crustâ, et veluti sordida, colore ochræ foris est; intùs verò prope marginem, ab alterâ ex Valvis, quæ forsan perforata, aut fracta fuit, origo stillati et ingressi humoris apparet, in Crystallini lapidis Speciem, Electri, aut Chrysolithi colore, atque in plures angulosas connexas pyramides concreti. Quod si humor ille vegetam habuisset naturam, et extremam partem splendidam, et propriâ effigie insignitam efformasset; non sordidam, ac alienam Conchæ induisset, ut manifestè apparet.
+
+§\. 4. Nos hujusmodi Concharum internas repletiones ex variis lapidum, et tophorum generibus concretis, ac etiam Concharum variis generibus, Cochlearum, Turbinum, aliarumque rerum quamplures habemus; ex quibus refellitur istorum opinio, cùm maximè, quia in multis adhuc Testa viget cum silice interno; tùm etiam, quia fragmenta Testarum plerumque reperiuntur, et in integris interna concretio non omnem vacuum implevit, sed inanem medium locum reliquit, se in angulosas gemmas contrahens per circumferentiam.
+
+§\. 5. Hujus etiam copiam fecit ditissimus ille naturalium rerum promus noster _Imperatus_, apud quem varias gemmeas concretiones et varii lapidum generis Testas, Cochleas, Buccinas, Concham margaritiferam, Nautili speciem; pedem, et ungulam, Partesque plurium Animalium immutatas in lapideam naturam videre poteris.
+
+# Caput 17. --- _Concha Exotica, margine in Mucronem emissa_.
+
+§\. 1. Peculiare huic rariori, quod præter Strias, aliis Conchis communes, quæ huic læves et latiores duplò ferè sunt stigibus; striæ ipsæ iterum ab angusto, et elato limbo, itùs fistuloso, supra illarum dorsum decurrente in alias tenues novenas strias efformantur, et loco strigium esse videntur: et Conchæ margo extrema Rostrata efficitur singulis novenis striis, quæ internâ parte cavæ apparent.
+
+[Figura]()
+
+§\. 2. Conchæ Cervix magna est, et crassa, ut clausa Testa se tangat cum alterius valvæ cervice, mediumque locum occupat conchæ, quæ circà illas in latus ampla fit obliquè, ut diametrum æquet, habeatque ternas connexiones pyxidatas; quarum minima, quæ proximior majori limbo, sive rostro est, media major, tertia longior: In imâ omnium strige, rugosa obliquè Lineis apparet concha.
+
+§\. 3. Hanc _Plinium_ novisse, vel similem, censeri potest, et descripsisse sub illâ notâ, _margine in mucronem emissa_; quamvis hæc in plures desinat mucrones, totaque margo mucronata; quare Concha [GREEK], appellari potest. Quatuor uncias diametrum æquat. Concha tota candida, non nimis crassâ est Testâ, quam Romæ habuimus; et similem _Imperatus_ habet.
+
+# Caput 18. --- _Concha Natatilis Νηριτώδης minima, Persicæ dictæ Recentiorum congener; et Varietates aliæ Exoticæ_.
+
+§\. 1. Sitnè Concha hæc, vel potiùs Cochleæ natura, sive suâ specie ita exigua, vel potiùs infans adhuc et tenella, dubitamus. At quod à Persicis differat, asserere possumus. Concha est, unguis majoris digiti magnitudine, unguis tenuitate, sed fragilior, colore ex pullo candicans, amplo admodum hiatu, ut infrà se turbinem colligat. Caret illo Lunato sinu, circa columellæ summum, quo Lingva exseri possit, ut in congeneribus.
+
+[Figura]()
+
+§\. 2. Animal intus habet magnum: sed quia non recens, sed exsiccatum in Ipsâ Concha vidimus, non aliud, quàm quod triplici veluti Loliginis ossiculo munitum esse observavimus; quorum aliquod Operculum, et carni annexum esse, non dubitamus.
+
+§\. 3. Omnes quidem Testas, quæ convolvuntur turbine, Operculum habere observatum est, nec nisi dimoto illo saxis adhærescunt, ut jam _Aristoteles_ docuit, præter Aurem marinam illam, quam nos Veneris aurem diximus; cui quamvis sit Conchæ vertex muricatìm sive turbinatìm intortus, et cochleatus in conchas; deest tamen Operculum, quia non animal habet, turbinatorum generi simile, sed Lepadum, quibus natura illud ademit, saxum pro illo, cui adhærere prorutelâ possint, tribuendum; et pro tubulo, ad linguæ usum, Foramina, quæ plura habet.
+
+§\. 4. Hanc _Imperatus_ noster nobis dono dedit; nec non et alios congeneres exoticas communicavit; de quibus, quia locus est, agemus, notas tantùm varietatis addentes, cum ex illarum picturâ satis Testæ differentia colligi possit.
+
+[Figura]()
+
+§\. 5. Prima et major, longa est semipedem, et unciam, lata palmū, colore ex cinereo flavicans, intus pallida, nitida, circa columellam externè rugosa, aspera, et magis flavicans, turbine infrà basim posito, ut vetustate minùs semper promineat, et includatur. Natat in Aquâ, ut congeneres, additoque pondere circa interiora, lata magis pars altera opposita, velificare videtur; ventoque impelli potest. Altera magis rugosa, foris colore ex fulvo ad castaneum vergente, intus candicat; sed Zonis distinguitur flavis et cinereis, turbine prominente, ex canali, distinguente Volutas duas, quibus testa contorquetur. Natat, ut superior: minor verò duplò, sed crassiore Testâ. Lunatæ sunt in extremo columellæ, ad Linguæ usum.
+
+[Figura]()
+
+# Caput 19. --- _Concha Exotica Vertice muricatim intorto_.
+
+§\. 1. Describuntur à _Plinio_ Concharum genera, in quibus magna ludentis Naturæ varietas observatur, et nos quotidiè in admirationem adducimur, varias intra manus nostras ex variis locis habentes, ut qui omnium Icones, et Descriptiones tradere vellet, maximum admodum Volumen impleret, extra aliàs ab aliis descriptas.
+
+§\. 2. Hanc mutilam, unâ tantùm valvâ imâ, dono accepimus Romæ à _Fabricio Christiano_, reconditarum rerum Viro curioso, ac Argentariæ officinæ domino, inter alia plura, et perpulchra Testacea. Hujus similes nostro mari haud conspicuas se præbent: quare Exoticam Concham, sicuti alias, esse non dubitamus: ac à _Plinio_ forsitan illis verbis comprehensa, (_Vertice muricatìm intorto, vel ad Buccinam recurvis_,) cervice quidem retorquetur, ac si non Concha, sed Cochlea fieri deberet.
+
+[Figura]()
+
+§\. 3. Nec aliud dicere possumus de eâ, nisi quod crassâ sit Testâ, et albicante, ac etiam ob vetustatem exesâ; in cujus superficie rubri Coralii corniculatum cespitem, latâ ac tenui radice, veluti si cera liquefacta rubra superinducta esset, Testæ superficiei, natura excitavit; vel si Coralii materies initiò molle quid, ac muscosum viscidum initium habuisset, ut opinamur.
+
+# Caput 20. --- _Concha utroque Latere se colligens, Exotica_.
+
 ...
