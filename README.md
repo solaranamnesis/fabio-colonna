@@ -29,3 +29,17 @@ Latin - Plain Text
 Latin - PDF | Biolinum | Atkinson | Cursive | Kerkis  
 English - Plain Text  
 English - PDF  
+
+## Phytobasanus.
+
+Latin - Plain Text  
+Latin - PDF | Biolinum | Atkinson | Cursive | Kerkis  
+English - Plain Text  
+English - PDF  
+
+## Annotationes Additionesque in Opus Universum Historiæ Medicæ Mexicanæ.
+
+Latin - Plain Text  
+Latin - PDF | Biolinum | Atkinson | Cursive | Kerkis  
+English - Plain Text  
+English - PDF  
