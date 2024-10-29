@@ -60,11 +60,11 @@
 
 # [Caput 20. --- Concha utroque Latere se colligens, Exotica.](#caput-20-----concha-utroque-latere-se-colligens-exotica-1)
 
-# [Annotationes ad Columnam de Purpura.]()
+# [Annotationes ad Columnam de Purpura.](#annotationes-ad-columnam-de-purpura-1)
 
-## [Annotatio 1.]()
+## [Annotatio 1.](#annotatio-1-1)
 
-## [Annotatio 2.]()
+## [Annotatio 2.](#annotatio-2-1)
 
 ...
 
