@@ -52,13 +52,13 @@
 
 # [Caput 16. --- Concha Fasciata, Gemmeâ Conretione repleta.](#caput-16-----concha-fasciata-gemmeâ-conretione-repleta-1)
 
-# [Caput 17. --- Concha Exotica, margine in Mucronem emissa.]()
+# [Caput 17. --- Concha Exotica, margine in Mucronem emissa.](#caput-17-----concha-exotica-margine-in-mucronem-emissa-1)
 
-# [Caput 18. --- Concha Natatilis Νηριτώδης minima, Persicæ dictæ Recentiorum congener; et Varietates aliæ Exoticæ.]()
+# [Caput 18. --- Concha Natatilis Νηριτώδης minima, Persicæ dictæ Recentiorum congener; et Varietates aliæ Exoticæ.](#caput-18-----concha-natatilis-νηριτώδης-minima-persicæ-dictæ-recentiorum-congener-et-varietates-aliæ-exoticæ-1)
 
-# [Caput 19. --- Concha Exotica Vertice muricatim intorto.]()
+# [Caput 19. --- Concha Exotica Vertice muricatim intorto.](#caput-19-----concha-exotica-vertice-muricatim-intorto-1)
 
-# [Caput 20. --- Concha utroque Latere se colligens, Exotica.]()
+# [Caput 20. --- Concha utroque Latere se colligens, Exotica.](#caput-20-----concha-utroque-latere-se-colligens-exotica-1)
 
 ...
 
