@@ -558,4 +558,38 @@ Parva est, unciam longa: angusta Testa, lævis; obliquè circa medium extuberans
 
 Finis.
 
+---
+
+# Annotationes ad Columnam de Purpura.
+
+## Annotatio 1.
+
+### Ad Titulum: _De Fabii Columnæ, Lyncei, Personâ ac Scriptis: deque Academiâ Romanâ Lynceorum, ac hujus Fundatore, curiosissimo Principe, Federico Cæsio_.
+
+§\. 1. _Familiæ_ COLUMNARUM, in Italiæ ac Orbis Urbe Româ, maximè-illustri, splendorem non parvum addidit _Fabius Columna, Lynceus, Nobilis Neapolitanus, genere Romanus_, qui circa initia præsentis seculi floruit, et Scripta quædam eximii commatis edidit, cum Iconibus plusculis, propriâ suâ manu æri incisis. Suntque hæc:
+
+1\. _Phytobasanus_, sive Plantarum aliquot, quoad vires et faciem, Historia verior, ab aliis non animadversa, quàm quæ apud Theophrastum, Dioscoridem, Plinium , Galenum, aut alios habetur. Accessit Piscium aliquot, Plantarumque novarum Historia: Edita Neapoli, An. 1592.
+
+2\. _Ecphrasis_ Minùs cognitarum rariorumque suo Cœlo orientium Stirpium; quâ non paucæ à Theophrasto, Dioscoride, Plinio, Galeno, et Antiquioribus aliis descriptæ, præter illas, de quibus in Phytobasano descriptæ, præter illas, de quibus in Phytobasano actum est, declarantur. Nec non de Aquatilibus, aliisque Animalibus libellus. Edita istorum una pars Romæ, Ann. 1606. altera ibidem, Ann. 1616.
+
+3\. _Tractatus de Purpurâ_, ab Animali Testaceo fusâ; deque hoc ipso Animali, et Testaceis quibusdam Rarioribus aliis: cum Dissertatione, instar Appendicis, additâ, de Glossopetris.  Romæ itidem editus, Ann. 1616. Quem Libellum perelegantem , cum rarissimè ampliùs, et non nisi in Bibliothecis Germaniæ perquam-paucis exstare deprehenderim; jam à plusculis Annis de Verbo ad Verbum transscripsi, ex Bibliothecâ privatâ magni illius Germaniæ Medici, _Dn. D. Dan. Sennerti_, penes Filium ejus, _Dn. D. Michaëlem Sennertum, in Acad. Wittebergensi, Medicinæ Prof. Celeberrimum_, superstite; Capita quævis in Paragraphos distinxi; Figuras Æri ab Autore incisas, meis sumtibus in Belgio, Buxi Ligno exsculpi curavi, ut quævis tantò commodiùs ipsi Textui, Locoque competenti posset inseri; et cum Indice Rerum et Verborum sufficiente, Annotatiunculam hanc et sequentes addidi: quas boni consultum, nec totum id institutum meum, Illustrem hanc Purpuram à Nocte oblivionis vindicandi, improbatum iri à Lectore benevolo, certissimè confido.
+
+Et 4. _Annotationes Additionesque in Opus Universum Historiæ Medicæ Mexicanæ_, vel Novæ Hispaniæ, à _Nardo Antonio Reccho_ editæ in Folio, Romæ Ann. 1651. et _Cardinali Francisco Barberino_ dedicatæ.
+
+§\. 2. Ex cujusmodi Scriptis, aut plusculis fortè reliquis, sicut peculiaris quædam _Nobilissimi Autoris_ Polymathia, et curiosa prorsus, constansque in observandis Naturæ deliciiis, ad Rem Botanicam præsertim, et Zoologiam Marinam spectantibus, industria effulget, salvâ Autoritate splendoris Sui Gentilitii: ita præstaret, in Superlativo, quàm Positivo, scripsisse de eo _Marcum Aurelium Severinam_, itidem Neapolitanum, parte 4. Zootomiæ Democrit. pag. 350. dum ait: _Fabius Columna, Naturæ indagator nobilis_: Rectius pleniusque _Johannes Faber_ (ipse etiam Academicus Lynceus) judicium de eo fert, his verbis (Histor. Mexican. pag. 550.) _Dn. Fabius Columna, Lynceus, sedulus maximè rerum naturalium scrutator; qui non modò in Juris Scientiâ multum pollet: sed in Mathesi (Opticâ præcipuè) ac Plantarum Animaliumque Cognitione Neapoli nunc ab omnibus, ceu Oraculum consulitur_: ex quibus patet simul, quo Loco vixerit.
+
+§\. 3. Veruntamen et Romæ aliquando, aut iteratò eundem _Columnam_ egisse, colligo ex Ipsiusmet verbis, dum libr. de Purp. cap. 17. §. 3. scribit de Conchâ quadam Exoticâ: _Crassâ est Testâ, quam Romæ habuimus_.
+
+§\. 4. _Lynceus_ verò dicitur, à Lynce, Symbolo Academiæ vel Sodalitii Literarii Lynceorum, cujus Membrum Illlustre ac Socius exstitit, instituti ac sustentati Romæ, non sine magnis Impensis, ab _Illustrissimo ac Excellentissimo Federico Cæsio, Montis Cœlii Marchione, S. Angeli, S. Poli, et Aquasparthæ Duce_, omnium scientiarum genere ornatissimo, et literatorum Mecænate summo: qui verô inter surgentes tam Regii instituti glorias, Ann. Chr. 1630. Ætatis suæ quadragesimo saltèm quinto, mortuus est; hóc acerbiùs lugendus, quò funestiùs tota isthæc Academia visa est, cum _Cæsio_ suo Autore, iterum cecidisse.
+
+§\. 5. Interim Scopus _Laudatissimi Principis_ fuit hic, ut non minùs Collegæ, Lyncis instar, argutos in Mysteria Naturæ ferrent Oculos, addito, ut par est, Studio Mathematico (vid. Hist. Mexic. p. 532.) quàm Principes alii, ad promovendos hos aut similes Conatus, invitarentur; et deposito omni præjudicio, per Experimenta fide dignissima, longè latèque prospiceretur Emolumento Rei literariæ publico.
+
+§\. 6. Ideoque non Viros modò Celebriores in istam Collegii Societatem facilè pellexit; in quorum numero mienent Experientissimus _Johann-Baptista Porta, Ingeniosissimus Galilæus à Galilæis_ (proh quanta Cœli physico-mathematici sidera!) _Casianus à Puteo, Claùdius Achillinus, Franciscus Stellutus, Johannes Faber, Bambergensis, Simpliciarius Pontificius_, qui scripsit Expositiones Animalium Novæ Hispaniæ, ad _Recchi_ Historiam Mexicanam; et noster ille _Fabius Columna_.
+
+§\. 7. Sed magnificis imprimis ejusdem _Principis Cæsii_ sumtibus, et Prodigalitati penè dixerim, debetur, quòd amplissimum istud _Recchi_ Opus, post quadraginta Annorum moras, (vid. histor. Mexican. pag. 789.) quibus sub prælo latuit, tandem ab Academicis, Anno 1651. in publicam lucem est productum. Imò Societates similes integras foris etiam constituere, in omnibus Mundi partibus tandem, et speciatim in Africâ et Americâ, Sagacissimus Princeps constituit; sed res eventu vix fuit secundata. Interim curiosum _Ipse_ à scriptione calamum non abstinuit, quo minùs Volumen quoddam _de Plantis Imperfectis_ scriberet, ut ex Histor. Mex. p. 874. colligo. Nec non _Tabulas Phytosophicas_, seu Viridarium omni Plantarum genere, et selectâ prorsus doctrinâ refertum; quod ànemine anteà visum, et delitescens quasi in Tenebris, _Franciscus Stellutus, Lynceus_, publicæ tandem Luci impertiit, exstans in Historiâ Mexicanâ, à paginâ ejus 905. usque ad 950. postquam nempe _Principi isti_ nihil fuit antiquius cariusque, quàm à severioribus Studiis, negociorumque Curis, (Hist. Mex. p. 903.) suas in Hortis delicìas habere. Et ex contextu Tabulæ illius passim patet, quamplura alia scripta _Principem_ amplissimâ suâ Mente esse meditatum: qualia sunt, _Volumen Taumatombriæ_, sive de Meteoris insolentioribus (Hist. Mex. p. 903.) _Cœlispicium, seu de Stellis_; (ibid.) _Mathesis Physica_, sive de Prodigiis artificiosis ex Geometriâ, Mathesi, Technicis: (Hist. Mex. p. 951.) _Theatrum Plantarum_ (ibid.) _Encyclopædia_ (ibid.) et plura alia: ut, si _Hunc_ non dedecuit literaria ista Sedulitas, qui inter Proavos et Majores connumeravit Imperatores, Reges, Pontifices, Principes, Patriarchas, Archiepiscopos, Episcopos, Præsules, Fortissimos Exercituum Duces; neque aliorum Principum Gloriæ similis Curiositas officere ullo modo possit.
+
+## Annotatio 2.
+
+### Ad Capitis 1. §. 3. _De Nomine Purpuræ, aliquibus Ambiguitatibus involuto, et plusculis aliis, circa id spectandis_.
+
 ...
