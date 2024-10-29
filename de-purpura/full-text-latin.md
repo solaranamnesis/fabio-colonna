@@ -554,6 +554,8 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 Parva est, unciam longa: angusta Testa, lævis; obliquè circa medium extuberans, ac si anulo cincta esset: rimam pro ore habet lævem. Crassa Testa est, candida, diaphana, splendens: et cum sit exotica, nihil aliud referre possumus, nisi varietatem, quâ naturæ solertiam admirandam proponimus. Animal exiguum: nec profundè contineri in ipsâ Testâ, dijudicamus ex _Imperati Muséo_.
 
+[Figura]()
+
 Finis.
 
 ...
