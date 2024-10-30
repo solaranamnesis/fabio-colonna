@@ -66,6 +66,8 @@
 
 ## [Annotatio 2.](#annotatio-2-1)
 
+## [Annotatio 3.](#annotatio-3-1)
+
 ...
 
 ---
@@ -637,5 +639,30 @@ _vel pro Succo præsertim aut Sanguine Animalculi jam-dicti_, Tincturæ Regalis 
 1\. Aliqui dictam putant, _quasi Purum Putum_ [HEBREW] _Ur_, vel Ignem, Hebræis dictum:
 
 2\. vel _quasi Purum Putum Urens_, postquam _tò Urere_ ab hoc _Ur_ vel Igne derivatur, Substantiâ omnium subtilissima, summè mobili, lucidâ, (in statu congregato) corporibusque aliis Splendoris gratiam conciliante. Cujusmodi Etymologiæ verò videtur non tutò satis innitendum. Si enim ab _Urendo_ nomen haberet, cujus prima Syllaba est longa; in voce _Purpuræ_ conveniret mediam Syllabam quoque produci, non corripi: quod puto esse manifestum. Et, unde etiam accessit Literar P?
+
+3\. Vel _quasi_ [GREEK], aut Purum putum Ignem, vel Lucem; ut geminato hoc Ignis, Substantiæ fulgidissimæ, titulo maximè fuleurans splendor Purpuræ notetur. Sed neque hæc Vocis deductio exactè quadrat. Sunt enim, ut notum, Cinnabaris, Minium, Coralia, Rosæ, Scarlatum, multò fulgurantioris Rubedinis, Purpurâ; et appellationem istam sic aliquantò digniùs mererentur. Imò in Purpurâ non tàm Splendor aliquis rutilans, quàm in obscurum potiùs tendens Cœruleum Rubescens, vel Rubrum, Cœrulescens, præcipuè commendatur.
+
+4\. Vel _quasi_ [GREEK], _Porum Ferre_, vel Meatum: et Venam Cruoris Purpurei intelligunt. Sed præterquam quod Anatomicis minùs usitatum est, _Pori_ appellationem tribuere _Venis_ Animalium; dubito etiam, an Syllaba Græcorum, [GREEK], facilè in _Pu_ Latinum mutata, in ullis nominibus aliis inveniatur; ut meram potiùs Vocum Allusionem existimem.
+
+5\. Vel ex Hebræo [HEBREW] _Separavit, dijunxit_, vel [HEBREW] _Rupit, Effregit_; quod Testa Purpuræ Animalis, ad Succum preciosisimum obtinendum, frangenda priùs fuerit: quæ originatio utcunque speciosior videtur, sed incerta; cum multa alia, imò fere innumera, Corpora æquè Fragilia aut Ruptilia sint, quæ exiguam admodùm cum Purpurâ familiaritatem habent: et videtur item Allusio tantùm quædam esse, ad Radicales Hebraicæ Vocis literas [HEBREW] et [HEBREW], quàm vera Originatio.
+
+§\. 7. Quin potiùs quando habemus Fontem manifestissimum alium, quid ullos obscuriores laboriosè insectemur? Quod enim [GREEK] Græcis, id ad amussim velut, Latinis _Purpura_ dicitur: et Derivata utrobivis perspicuè conspirant: _1._ _Purpuro_, [GREEK], h. e. purpureo Colore tingo, vel facio, ut aliquid Purpuræ in modum effulgeat; Vox veteris Poëtæ, quam probat _Gellius_, lib. 18. c. 2. versum hunc adducens:
+
+_Spiritus Eurorii virides cum purpurat Undas_. Inde _2._ _Purpurati_ Patres, qui Purpuram gestabant; Reges, Principes, Senatores Romani, aut hodie Cardinales. _3._ _Purpurarii_: qui erant tàm Infectores, quàm Negociatores. Et Infectores præsertim quales homines fuerint, quæque eorum Officinæ ac Fraudes, _Autor_ ipse _noster_, in capitis hujus §. 37. et 38. explicat. Diciturque Græcè [GREEK], Purpuræ Venditrix. _4._ _Purpureus_, _a_, _um_, [GREEK], [GREEK], i. e. Ruber, puniceus, florens, ac roseus. Unde Juvenile decus Genarum _Virgilius_ 1. _Æn. v. 594._ his verbis describit:
+
+--- --- _Lumenque Juventæ_  
+_Purpureum, et lætos oculis afflarat honores_.
+
+§\. 8. Et quoniam inter Colores Simpliciores, Rubro rutilante nullus fortior, vel Cœrulescente, ob quandam cœli imaginem, haut facilè ullus amabilior, venerabilior, aut adspectu amœnior est, qui duo sub communi _Purpuræ_ nomine continentur; ideóque Poëtæ præsertim, in vocibus latiùs extendendis liberi admodum, _quidvis Pulcrum_, amœnè coloratum, aut splendens, continuò etiam Purpureum vocarunt, ut _Flammam Euripides_ (in Troadibus) _Lumen Virgilius, 6._ Æn. _Nivem Pedo_, antiquus quidam sic-dictus, _Mare Euripides_ iterum l. d. _Comam_ Nisi, _Ovidius, Oculos Flaccus_, ipsosque _Olores_ vel Cygnos, _Horatius_ lib. 4. od. 1. v. 10. Quod tamen ad _Mare_ attinet, de quo sic canit _Virgilius_ lib. 4. Georg. v. 372.
+
+_In Mare Purpureum violentior influit Amnis;_
+
+id citra Tralationem etiam dicere poterat, respectu Imaginis Auroræ, purpureo schemate ex superficie Aquarum ad Oculum reflexæ.
+
+§\. 9. _5._ _Purpurina_, Pigmenti genus; de quo distinctiùs paucula, ad præsentis Capitis §. 24. notabo. _6._ _Purpurissa_, _Purpurissum_, (à [GREEK], in purpureum colorem vergo:) simile Pigmenti genus; de quo ibidem. et _7._ _Purpurites_, [GREEK], lapis, inter Marmora rubra principatum obtinens, columnis, mortariis, ac aliis rebus, violentiæ obnoxiis, parandis aptus: de quo vide _Ol. Wormium_ libr. 2. Mus. Sect. 2. cap. 4. pag. 44: sed diversus â _Purpurite_ seu Purpurâ lapidescente, argenteis Maculis adspersâ, quam in effigie nobis exhibet Musèum Metallicum _Aldrovandi_ lib. 1. cap. 3. pag. 89.
+
+## Annotatio 3.
+
+### Ad Capitis 1. §. 6. et 7. _De Ostro, ejusque Nomine ac Denominatis_.
 
 ...
