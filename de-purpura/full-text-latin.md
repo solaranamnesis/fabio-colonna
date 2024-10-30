@@ -598,4 +598,44 @@ Et 4. _Annotationes Additionesque in Opus Universum Historiæ Medicæ Mexicanæ_
 
 ### Ad Capitis 1. §. 3. _De Nomine Purpuræ, aliquibus Ambiguitatibus involuto, et plusculis aliis, circa id spectandis_.
 
+§\. 1. Sollicitum se non sine causâ præstat _Autor_ in resolvendis Ambiguitatibus, quæ Vocem Purpuræ circumstant: nam multis ait Confusionem, et causam errandi peperisse. Quod periculum proin ut imposterum declinet, convenienter satis hîc admonet, _Purpuræ Appellationem_ sumi nunc _propriè_, nunc _impropriè_; nunc _in genere_, nunc _in specie_.
+
+§\. 2. Sed hæc aliquantò clariora, ut puto, ex Tabulâ hâc nostrâ fient. Nimirùm, ut ordinatiùs agamus, _Purpuræ Vox_ sumitur vel
+
+_Propriè_; partim
+
+_in genere_, pro Animali Testaceo Marino Turbinato qualicunque [vel Cochleâ marinâ, vulgò Conchylio] Sanguinem aut Succum saturatò rubrum vel cœrulescentem reddente, Tincturæ aptum:
+
+_in specie_, pro muricatâ, (h. e. aculeatâ) illâ marinâ Cochleâ; Tincturæ preciosissimæ vestimentalis ergò olim quæsitâ, adhibitâque; cujus Icon ex Autore in Capitis hujus l. §. 26. affertur.
+
+Atque iterum dupliciter:
+
+_vel pro Toto isto Animali_, Testâ suâ aculeatâ vestito, gerenteque suo Faucibus preciosum illum Cruorem, quo Lanæ et Serica, aut inde paratæ Regum et Senatorum Vestes imbuebantur: Cujusmodi in specie dictam _Purpuram_ Autor, tùm hîc, tùm inferiùs (§. 24.) ait, nunc _Muricem_, nunc _Conchylium_ fuisse appellatum. _Muricem_ quidem per Tropum, Partis pro Toto; Murices enim propriè sunt Cuspides vel Eminentiæ aculeatæ duræ, quibus Testacea multa, ac inter illa Purpuræ, forinsecus armantur: _Conchylium_ verò [GREEK], quod Purpura videlicet sit Concharum aut Testaceorum quasi omnium Regina. Quibus Nominibus (h. e. Muricis et Conchylii) iterum tamen subsunt Ambiguitates aliquæ, ab ipsomet _Columnâ_ perspicuè sat discussæ, in præsentis cap. 1. §. 8, 9, 10, 14 et 20.
+
+_vel pro Succo præsertim aut Sanguine Animalculi jam-dicti_, Tincturæ Regalis promocondo.
+
+§\. 3. _Impropriè_ ac tralatitiè, multifariàm: videlicet
+
+1\. _pro Veste ipsamet Regiâ aut Senatoriâ_, Purpureo humore Tinctâ.
+
+2\. _Imô pro Magistratu_ Romano, aut postmodùm quovis alio, Vestes istiusmodi tinctas gerente, aut etiam non gerente:
+
+3\. _Pro Colore saturatò rubro aut purpurascente aliarum rum Rerum_; quales e. gr. sunt hæ:
+
+1\. _Testaceum Bivalve_, à Clar. _Oleario_, in Descriptione Cameræ Gottorpiensis Tab. 29. fig. 3. delineatum, et pag. 61. pro verâ Purpurâ habitum; sed minùs rectè, etiamsi Testula illa, quam ibi describit, Purpureo Colore micet. Verba ita sonant: _Es ist auch eine rechte Purpur-Muschel, dann Sie inwendig überall hoch-purpur-farbe: von aussen gegen dem Centro ist die helffte Purpur in weiss vermischet_. Quin potiùs, quod salvâ Celeberrimi Viri existimatione, et quondam Amici benemeritissimi, in contrarium ingenuè monere liceat; _1._ Simile non est idem: Tinctura, quo Testa ista naturaliter imbuta exstitit, Purpuræ similis fuit, et multa alia Conchyliorum genera, tam hoc, quàm aliis Coloribus, superbâ varietate et elegantiâ ornantur; proptereà tamen ea, quæ Purpuræ Animalis, aut aliarum rerum Fulgorem æmulantur, non ipsamet statim Purpuræ sunt. _2._ Oppidò multæ Testaceæ Purpurarum, propriè dictarum, domunculæ, vel Conchæ duræ, in quibus Cochlearum more se recondunt, Purpureum Colorem nullum, ex Succo tingente contraxerunt, quia opus non est, aut inter distinctiva Purpuræ Signa ab aliis Testaceis, non reponitur, ut quemadmodùm intùs gaudent Latice, ad tingendum apto, ita eodem etiam viventes jam, Testam suam imbuant, et sint ostentabundæ pictrices suæ domûs. _3._ Ac imprimis Purpuræ veræ jam dictæ, cum Speciebus affinibus, toto Genere distant à Purpurâ Olearianâ. Hæc enim, ut ex Icone, æri incis â, licet colligere, ad Testacea Bivalvia, vel duas Testas habentia pertinet; propriè-dictæ Purpuræ verò, cum Cochleis reliquis omnibus, sunt non-nisi Univalves.
+
+§\. 5.
+
+2\. _Homo Æger, Febre exanthematicâ laborans_, et ab eâ rubrè quasi pictus in Cute. Per quam Febrem Exanthematicam hîc subintelligitur vel
+
+1\. _indifferenter qualiscunque_ quo-usque, ni fallor, Clarissimus quondam Lubecensium Medicus, _D. Paulus Neucranzius_, in suis de Purpurâ (Morbo) Lucubrationibus, vocem Purpuræ extendit.
+
+2\. _sigillatim, de Febris Petechialis specie_, quæ superioribus, in hoc Seculo, Annis epidemia primùm Lipsiæ exstitit, et _Febris Puerperarum_ dicta eò, quia solas tum aliquandiu Puerperas invadens, funestam earum stragem edidit, Germanicè ibidem _Frisel_ dicta est, â voce Frieren, h. e. frigere, quod cum horrore plerumque invaserit, vel, quod asperam redderet Cutim, qualis à Frigore esse solet in deplumatis Anseribus: vel etiam _Febris Petechialis nova_ (eo Tempore) ob stigmata multa, parva, rubra, maculis morsûs pulicum similia, plus minùs in Cute turgescentia cum calore urente; aut _Febris Purpurata Riverio_, Cent. 1, obs. med. 21. vel unico nomine _Purpura_, ob causam modô-dictam; aut cum epitheto, _Febris Purpura Miliaris_, quod singulæ maculæ floridæ in centro insidentem plerumque acquirerent elatam Pustulam ichorosam, adeò, ut dum cutis vel tota, vel præcipuè in Dorso, Collo, Pectore, efflorescentiis istis, et pustulis, granorum Milii æmulis, existeret largè obsita, maximam sui partem Milio vel Ovis Piscium conspersa videretur. Habitaque est febris ista meritò periculosa, tàm per Experientiam multorum Tragicorum eventuum; quàm aliàs quoque, ratione Symptomatum, (Vigiliarum, Sitis immensæ, Delirii) et subitaneæ Retrocessionis: quæ debebatur Sero cuidam subtili Scorbutico, vel Lymphis viscerum volatilibus ebullientibus, mobilibus valdè: quo genere Morbi ipse quondam Hamburgi, sub Typo primùm Tertianæ malignæ Scorbuticæ, hinc planè continuæ Exanthematicæ, laboravi. Nam quamvis Malum id primis post adventum suum in Germaniam Temporibus Puerperas Lipsienses, aut in viciniâ, specialiter quasi tantùm afficere visa esset: deinde tamen longè latèque ad plures alias insuper Germaniæ ditiones, hominumque sexum utrumque, et omnem penè ætatem dimanavit, ita ut Viros æquè ac Fœminas, Juvenes ac Senes, passim invaserit; cujus exempla pluscula, aliqua etiam meæ curæ subjecta, iteratò mihi nota reddita sunt. Imò sicut _Febris_ illa _Purpura_ interdum Sudaminibus istiusmodi in medio macularum destituitur: imò citra Febrim notabilem quoque ac Maculas, Sudamina aliquibus erumpunt, quæ non convenientiùs, quàm reciprocato super Cutim exasperatam echino vestimentali, ex Setis porcinis facto, tolluntur, et solo Pruritu, maturitatis indice, hominem ad scalpendum vel simile quid, irritant.
+
+§\. 6. Unde verò descendat _Purpuræ Vox_, in diversas Opinionum partes abire uniuscujusque arbitrio relinquitur, salvâ Animarum pace, vel totius Romani Imperii: ex quibus mihi hæ videntur celebriores; dum nempe
+
+1\. Aliqui dictam putant, _quasi Purum Putum_ [HEBREW] _Ur_, vel Ignem, Hebræis dictum:
+
+2\. vel _quasi Purum Putum Urens_, postquam _tò Urere_ ab hoc _Ur_ vel Igne derivatur, Substantiâ omnium subtilissima, summè mobili, lucidâ, (in statu congregato) corporibusque aliis Splendoris gratiam conciliante. Cujusmodi Etymologiæ verò videtur non tutò satis innitendum. Si enim ab _Urendo_ nomen haberet, cujus prima Syllaba est longa; in voce _Purpuræ_ conveniret mediam Syllabam quoque produci, non corripi: quod puto esse manifestum. Et, unde etiam accessit Literar P?
+
 ...
