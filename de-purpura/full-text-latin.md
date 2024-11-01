@@ -68,6 +68,8 @@
 
 ## [Annotatio 3.](#annotatio-3-1)
 
+## [Annotatio 4.](#annotatio-4-1)
+
 ...
 
 ---
@@ -702,5 +704,33 @@ id citra Tralationem etiam dicere poterat, respectu Imaginis Auroræ, purpureo s
 §\. 18. _Fabricius_, citante _Albino_ (Weissnisch: Berg-Chronic: Tit 23. pag. 177. 178.) persuasione Vulgi potiùs, quàm propriâ opinione actus, _Ollas_ illas _à Pygmæis in Terrâ relictas_ refert, qui quondam in Antris Thuringiæ, et vicinarū regionum, habitaverint: unde Zwerg-Töpfe ibi quoque appellentur. Imò vivere etiamnum in subterraneis passim, Pygmæorum Gentem, et plura istiusmodi Vascula fingere. Quam fabulam autoribus suis defendendam, firmiterque credendam, lubens mittimus.
 
 §\. 19. Hoc verò â ratione minùs alienum est, quod sibi persuadet _Boëthius_ (lib. 2. d. Lap. et Gemm. c. 212.) _Molles esse in Terrâ_ (intellige, Friabiliores,) _exemtas_ in aere _lapidescere_. Ista Friabilitas, et fatiscentia facilis, ab Humiditate Nitroso-Salsâ Terræ in aliquibus regionibus, longiusculi Temporis tractu, supervenire ipsis potest: quâ exhaustâ, vi radiorum solarium aut atmosphæræ aliàs siccioris, ad siccitatem pristinam redeant, et utcunque magis resistant tactui. Unde in Lusatiâ quoque hunc modum effossionis earum tenere _Albinus_ ait Incolas, ut reperto, per exploratorium instrumentum, Urnæ indicio, inventas easdem non statim eruant, sed circumfossas linquant in Terrâ aliquandiu subsistere, ut sensim siccescendo, cum minore ruptionis periculo dein eximi ac asservari possint.
+
+§\. 20. Reperiri enim sub Terrâ interdum, tàm in _Lusatiâ_ modò-dictâ, ubi gewachsene Töpfe à vulgo appellentur, quàm vicinâ eidem _Misniâ, Saxoniâ, Thuringiâ, Hassiâ_, et _ad Rhenum_, Fictilia Veterum, tàm Funeralia, quàm Oeconomicis etiam usibus destinata, coloris ac figuræ variæ, ex eodem _Autore_ discimus. Inque _Hercyniæ Tractibus_ præsertim hodie id non esse admodùm insolens, tum privatim per literas edoctus sum, ab accuratissimo Fossilium, ejus Regionis, scrutatore, _D. Frid. Lachmundo_, Hildesheimensium, Sympolitarum suorum, Medico; tum puplico scripto idem confirmat _Becherus_, Patinæ fossilis Hildesheimensis, nigræ, aureaque armaturâ radiantis, mentionem faciens lib. 1. Phys. subterr. sect. 6. cap. 3. num. 30: ne silentio prorsus transgrediar vel _Holsatiam_ porrò, in cujus Insulâ quadam, Sylt, antiquioribus Frisiis habitatâ, sub Præfecturâ Tunderensi, ex Collibus, plurimas Ollas Fictiles nigras erutas, ossibus cineribusque plenas, _Clar. Danckwerthus_ (Topograph. Hols. part. 2. cap. 5. p. 89. a.) memorat: vel _Silesiam_ meam, tam in Montanis, Bohemiam respicientibus, non longe à Boberâ fluv. [ad quem Germaniæ Cygnus, _Opitius_ natus est;] quàm in citeriore ejus parte, propè Oderam vel Viadrum fluvium; uti jam dicetur.
+
+§\. 21. Monstrat enim inclytæ Silesiæ Metropolis, _Vratislavia_, Patria mea charissima, in publicâ, quæ ibidem habetur, Bibliothecâ Templi Mariæ-Magdalenæi, in Scrinio conveniente repositas _Ollas Fictiles 16._ effossas Ann. 1614. d. 15. April: in Pago _Ransern_, qui milliari uno ab Urbe dissidet, sub ditione _Illustris Senatus_ ibi, ad Viadri ripam, in purissimâ Arenâ, dum Aggeri reparando cura intenderetur; in quibus majores nostri Mortuorum suorum Cineres condidère: majusculas, mediocres, parvas; duras affatim; et aliquas earum lineis insculptis ornatas, alias rudius elaboratas; ansatas item aliquas ab uno vel utroque latere; alias sine ansis; scabras quodammodo, nec lithargyro obductas. Omnes verò orificii vel aperturæ strictioris, Ventrisque amplioris. Ex quibus mediocres tres elegi, et in defectu Artificis, dum charta hæc jamjam prælo esset subiicienda, rudi scalpello in Ligno sculptas, delineare conatus sum in addito hîc Schemate, intimando altitudinem earum et diametros, quâ parte maximè ventriosæ sunt.
+
+_Prima_ nimirum, Signo ☉ notata, Amplitudinem habet, cujus diameter Unciarum 4 1/2: Altitudinem verò 3 1/2 Unc. circiter.
+
+[Figura]()
+
+_Secunda_, Signo ☾ notata, amplitudine (diametraliter) æquat Uncias 3. Altitudine Uncias 2 1/2.
+
+Et _Tertia_, sub Signo ✶ æquat Amplitudine Uncias quasi 6. Altitudine Unc. 2 1/2.
+
+§\. 22. In _Italia_ Sepulcrales Romanorum Urnæ proprio nomine _Ossuaria_ sunt dicta, ac _Cineraria_; Græcè [GREEK], vel [GREEK]. Eaque non Fictilia solùm, sed ex Marmore quoque, imò Argento, ac Auro facta esse, convenienter _Kirchmannus_ nos admonet lib. 3. de Funerib. Romanorum, cap. 8. et quoad molem parva, minutaque Vascula exstitisse, quodammodo ex _Propertii_ lib. 4. eleg. ult. addiscimus, qui ait:
+
+_Non minùs immites habui Cornelia Parcas,_  
+_Et sum, quod digitis quinque levatur, onus:_
+
+quorsum etiam alludit elegantissimus Poëta Christianus, _Prudentius_, his verbis, hymn. 10. Cathem. vers. 145.
+
+_Non si cariosa vetustas_  
+_Dissolverit ossa favillis,_  
+_Fueritque cinusculus arens,_  
+_Minimi mensura pugilli._
+
+## Annotatio 4.
+
+### Ad Capitis 1. §. 8. 9. 10. 11. 12. et seq. _De Vocis Conchylii significatu multiplici, et acceptionibus perplexis_.
 
 ...
