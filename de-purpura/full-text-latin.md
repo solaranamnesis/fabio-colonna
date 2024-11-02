@@ -778,6 +778,6 @@ _Sed tum fortè cavâ dum personat æquora Conchâ._
 
 ## Annotatio 5.
 
-### Ad Capitis 1. §. 11. 12. 13. _De Essentialibo Purpuræ Differentiis_.
+### Ad Capitis 1. §. 11. 12. 13. _De Essentialibcon Purpuræ Differentiis_.
 
 ...
