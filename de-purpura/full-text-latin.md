@@ -780,4 +780,32 @@ _Sed tum fortè cavâ dum personat æquora Conchâ._
 
 ### Ad Capitis 1. §. 11. 12. 13. _De Essentialibcon Purpuræ Differentiis_.
 
+§\. 1. Sed jam directè ad ipsas Res. _Purpurei Coloris Differentias_ quasdam _Columna_, Cap. 1. §. 11. 12. et 13. (quibus adde §. 39.) proponit, et laudem eâtenus meretur: an verò ordine tali id agat, ut Lector Memoriâ satietur, iterum penè dubito; et quivis, cui placet, privatim periculum facere de se Ipse potest. Equidem Sensum ex verbis fideliter primò extraham, hinc luculentiorem utcunque tractandi ordinem monstrabo.
+
+§\. 2. Sensus _Autoris_, in dictis Paragraphis 11. et sequentibus expressus, est hic:
+
+Conchylii, vel Purpuræ Cœruleæ Colorem fuisse dilutiorem, vel pleniorem; _§. 11._
+
+Purpurea Colore saturatiore variasse? _ibidem._
+
+Purpureum Colorem _Plinio_ esse, qui ex Cœruleo magis ad Rubedinem tendat, saturato satis Colore, ut Rosæ purpureæ, quem alibi nigricantis Rosæ Colore sublucentem dixerit; _§. 12._
+
+Alium Eidem dilutiorem esse, ut Violæ præcocis marinæ? _ibidem._
+
+Alteram speciem Purpuræ, _Plinio_ iterum videri, quæ ex Rubro magis ad Cœruleum tendat dilutum, dicique propriè Conchylium, ut Helitotropii, vel Malvæ purpureæ? aut tendat ad Cæruleum magis obscurum, ut Violæ purpureæ montanæ; _ibidem._
+
+Huncque colorem _Illi_ dici Austerum in glauco, et irascenti similem Mari; vel _Virgilio_ Purpuram, nigræ Violæ sublucentem; _ibidem._
+
+Colorem Conchylii, (h. e. Purpuram cœruleam) sine Buccino fieri; _§. 13._
+
+Buccinum enim ad Rubedinem Rosæ, aut Cocco similem, ferè tendere, juxta Plinium: Purpuram verò emittere magis Violaceam Saniem; _ibidem._
+
+Nitorem Cocci quæri, ut (Purpura ad rubedinem ducenda) Sanguinis concreti speciem referat; _ibid._
+
+Istumque Colorem Tyrium dictum esse; _ibid._
+
+Conchylium in coquendo evadere non debuisse nigricantem nimis: ideoque in Buccini Cortinam permutatam esse, ut ruborem superacciperet; _ibidem._
+
+Et Rubeum Colorem nigricante deteriorem, _Plinio_ dici, nisi sit adspectu Concreti Sanguinis; _§. 39._
+
 ...
