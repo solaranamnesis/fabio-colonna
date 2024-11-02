@@ -808,4 +808,48 @@ Conchylium in coquendo evadere non debuisse nigricantem nimis: ideoque in Buccin
 
 Et Rubeum Colorem nigricante deteriorem, _Plinio_ dici, nisi sit adspectu Concreti Sanguinis; _§. 39._
 
+§\. 3. Ex quibus, eo Ordine lectis, quo juxta ductum _Columnæ nostri_ hîc adducta sunt, admodùm dubito, an æquè distinctam _Purpuræ Veteris Differentiarum_ cognitionem tàm commodè statim, aut primâ fronte, eruere quis possit, atque efficere in jam-sequentibus conabor, exorsurus à primo Ovo, quod dicitur, seu summâ _Colorum distributione_.
+
+§\. 4. _Colores_ Rerum nimirum distinguere soleo in
+
+_Ineffabiles_, (h. e. qui distinctam sui cognitionem respuunt, et cernuntur magis, quàm discernuntur; e. g. in principio Vertiginis ac Lipothymiæ.) _ac Effabiles_, (h. e. qui peculiari nomine aliquo indigitari possunt ac solent de Rebus, in quibus primò inventi fuerunt aut excellunt.) Suntque vel
+
+§\. 5. _Simplices_, principales, aut fundamentales: et hi vel
+
+_Extremi_, (ut vulgò etiam subdividuntur) duo
+
+_Albus_; (accuratè aliàs loquendo non tàm Color, quam lucularum purissimarum congeries, ex specularibus superficiebus confusi Diaphani, ad oculum reflexa.)
+
+_Et Niger_ (Apparentia potius, ex aberratione Radiorum Luminosorum, procul ab Oculo, contingens.)
+
+_Intermedii_ tres: quorum
+
+§\. 6. _Unus, Exquisitè medius_, omniumque fortissimus, _Ruber_. Isque adeò fortis ac efficax, ut irritandis majoricum etiam Bestiis sit aptus, juxta Locum _Scripturæ, 1. Maccab. 6. v. 34._ et _Justiniani_, lib. 4. Instit Jr. tit. 1. §. 11.
+
+_duo reliqui Laterales_, Rubro proximi,
+
+_Flavus_, aut Citrinus, mediocriter validus, sed Rubro imbecillior:
+
+_Et Cœruleus_, aut Sapphirinus, mediocriter imbecillis, sed Nigro validior, ortus ex Radiis luminosis sparsis, debiliùs ad Oculum refractis.
+
+§\. 7. _Compositi_ aut _mixti_, ex æqualiter utcunque combinatis videlicet Simplicibus oriundi; iisque vel
+
+_duobus præcipuè_, ad vitandam Confusionem;
+
+_tribus aut pluribus_; imò Simplicibus et Compositis; vel planè Compositis et Compositis, ut _Decompositi_, sed distinctum Oculorum judicium tantò longius eludentes, exin resultent.
+
+§\. 8. Cujusmodi vel ex Simplicibus plusculis _Compositi_, h. e. _Valde-Compositi_, vel etiam planè _Decompositi Colores_, ad nullas ampliùs subdivisiones nos adigent, conspicui e. g. in Collis Anatum, Caudis Pavonum, striatis Herbarum quarundam Foliis, Soli ac Visui obliquè obversis, Plumbo recens-suso, et calente adhuc, Pelliculâ Exstinctionis Calcis vivæ, Bullis Saponariis, in aërem projectis, Texturâ Sericeâ multicoloris fili, et misturâ confusionéve Pigmentorum indifferenter multiplicium, aut Rebus aliis: nam emergit talium rerum inexplicabilis varietas, pro diversâ, et infinities penè mutabili commixtionis lege; ac tandem tamen cogimur à Decompositis ad Composita, et ab his ad simpliciores combinandi rationes, in animo retrogredi, usque dum ipsos fundamentales Colores, anteà dictos, in quibus judicium Visûs determinatò acquiescat, iterum contingamus, Aut, si tres saltem Simplices intermedii, h. e. Flavus, Ruber, Cœruleusque jungantur, luridus, lividusvè, cadaverosus, aut aliàs oculis ingratus Color inde enascitur, ob maximè perturbatas Radiorum Refractiones.
+
+§\. 9. Ad _Compositos_ itaque _Colores_, qui proximè resultant ex combinatione _Duorum Simplicium_, quod attinet; eorum celebrantur præcipué Tres: Aureus, Viridis, ac Purpureus. Plures tamen alii, quantumlibet minùs flammei aut floridi, propterea non sunt negandi, utpote verè existentes in Mundo, et sua etiam habentes Phænomena, à Colorum Simplicium phænomenis vel specificè, vel gradualiter distincta, ut distinctiùs, evidentiùsque ex subjectâ Tabulâ hâc liquet. Quâ videlicet ex
+
+_Albo_
+
+_Et Flavo_ fieri conspicitur _Flavescens_; vel Flavum Albo vicinum:
+
+_Et Rubro_, Color _Carneus_, vel Incarnatus:
+
+_Et Cœruleo_, Cineraseens:
+
+_Et Nigro_, Cinereus.
+
 ...
