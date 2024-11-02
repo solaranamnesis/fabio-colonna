@@ -70,6 +70,8 @@
 
 ## [Annotatio 4.](#annotatio-4-1)
 
+## [Annotatio 5.](#annotatio-5-1)
+
 ...
 
 ---
@@ -732,5 +734,50 @@ _Minimi mensura pugilli._
 ## Annotatio 4.
 
 ### Ad Capitis 1. §. 8. 9. 10. 11. 12. et seq. _De Vocis Conchylii significatu multiplici, et acceptionibus perplexis_.
+
+§\. 1. Missis iis, quæ circa Purpuræ ac Ostri Vocabula, notanda vîdebantur, volebam modò ad Res ipsas, ubi opus, digredi. At identidem in primo, quod dicitur, limine detineor; et circa _Conchylii_ appellationem obscuritates quasdam quoque invenio. In quibus tollendis, ut par est, _Autor_ quoque diligentiam quandam adhibuit; sed foret optandum, ut in verbis perspicuus magis, inque ipso contextu ordinatiùs disponendo, felicior fuisset.
+
+§\. 2. Quapropter defectui etiam huic medelam paraturus, hac Methodo procedo, quâ omnis tandem evanescet Obscuritas. Notandum nimirum, alias Æquivocationes in voce _Conchylii_, alias in voce _Conchæ_, illius primitivo, haberi; et iterum alias utrique communes esse; quod levi additâ diligentiâ, ex sequentibus potest elici.
+
+§\. 3. Ad vocem _Conchæ_ enim quod attinet, tres ea potissimùm Significatus habet; dum accipitur vel
+
+1\. _pro Testaceo Animali quovis_, sive sit Univalve, sive Bivalve; in quibus, tanquam summis duobus Testaceorum Generibus, Autores consistunt communiter: sive Trivalve, aut Plurivalve, quæ addenda existimo. Elegans, quoad Genersalissimum Vocis Sensum, interim notari meretur locus _Plauti_, in Rudente, (2. 2. 5:)
+
+_Salvete Fures maritimi, Conchitœ, atque Hamitæ,_  
+_Famelica Hominum natio; quid agitis? ut peritis?_
+
+nisi forsan _Conchitæ_ hîc, specialissimè pro Purpurilegis aut Muricilegis capiendi sint. In genere verò, dum _Concha Testaceis omnibus attribuitur_, tribuitur ea Vox porrò vel
+
+Totis istiusmodi Aquatilibus, Ostracodermis: Duriori potiùs parti eorum, Testæ, in oppositione ad Carnem, in eâ contentam.
+
+2\. _pro Turbinatis_, ut _Autor_ noster docet hoc Capite de Purp. §. 10. 15: quæ Turbinata interdum pro Summo Genere Testaceorum Univalvium habentur.
+
+Sed iterum haud aptè. Habentur enim etiam _Univalvia_ alterius ordinis, quæ propriè-sic-dictorum more, ex orificio aut Limbo aperturæ patentioris, in Ventrem Volutæ alicujus notabilem, indeque spiraliter in umbilicale Extremum non revolvuntur, ut Conchæ Veneris dictæ, Aures Marinæ, Dentalia, Lepades.
+
+Et ob hanc revolutæ in spiram ventriositatis similitudinē pro in aliquæ aliæ Res, Translatione non ineptâ, _Conchæ_ titulum posteà acceperunt; e. g. _Portiunculæ Ossis petrosi, ad Aurem internam_ spectans; de quâ _Riolanus_ lib. 4. Enchir. An. cap. 4. et lib. 6. c. 12. imprimis verò statim lib. 1. c. 1. videatur: vel in Hydraulico opere, et artificialibus _Fontibus Hortorum, Pelves æneæ aut marmoreæ_ magnæ, Aquam ex Tubulis occultis lætè recipentes: vel in Triclinio, _Pateræ argenteæ, Vitreævè grandes_, in Salutipotationis usum et abusum. Vel in Officinis Chirurgicis _Pelves_, quæ inter tondendum Barbam adhibentur. Ut de _Pictorum Conchuliis_ tam nativis, (collectis in littore) marinis, aut fluviatilibus, quàm figulinis, stanneis, vitreis, non multa addam; imprimis quod pereruditè ac pleniùs de his tractat _Celeberr. Joh. Schefferus_ in suâ Graphice, §. 58. pag. 184.
+
+3\. _pro Turbinatis saltem Palustribus_, non marinis; ut colligere est ex _Column_. de Purp. h. l. §. 15. 16.
+
+4\. _aut ex marinis, pro Buccino majore, vel Cochleâ marinâ magnâ_, in latitudinem, vel ventrem ampli orificii retortâ, et adhibitâ loco Tubæ â Tyrrhenis, ante inventionem Tubæ, ut _Schrevelius_ annotat ad illud _Ovidii_ lib. 1. Metam. Fab. de Tritone, Neptuni buccinatore vel tubicine:
+
+--- --- _humeros innato Murice tectum_  
+_Cœruleum Tritona vocat, Conchaque sonanti_  
+_Inspirare jubet._ --- --- et versum hunc _Virgilii_ ex 6. Æn. adducit:
+
+_Sed tum fortè cavâ dum personat æquora Conchâ._  
+
+9\. _Conchylium_ dein, (Græcè [GREEK]) similiter viâ Significatûs non constanter unius apud Autores, sed triplicis aut quadruplicis incedit. Dici enim illud legimus
+
+1\. _pro Testaceo Animali quovis_, suffragante _Columnâ_, in hujus cap. §. 10. 25. sicut Conchæ vox, in antè-dictis, generalissimè Ostracodermis vel Testaceis omnibus, attributa est.
+
+2\. _præcipuè autem vesco_, ut patet ex _Columnâ_ ibidem, §. 14.
+
+3\. _pro genere Infecturæ, aut Colorè_, eximii illius Succi vel Sanguinis Purpuræ, qui in Catinis solebat confici, suffragante iterum _Columnâ_ l. d. §. 8. 9. 10. 12. 10. 25.
+
+4\. _Et quidem Colore Cœrulescente Purpureo_, exinde resultante; vid. _Col._ de Purp. c. 1. §. 11. 12. unde Conchyliata Vestis, pro Colore isto purpureo infectâ dicitur.
+
+## Annotatio 5.
+
+### Ad Capitis 1. §. 11. 12. 13. _De Essentialibo Purpuræ Differentiis_.
 
 ...
