@@ -852,4 +852,116 @@ _Et Cœruleo_, Cineraseens:
 
 _Et Nigro_, Cinereus.
 
+_Flavo_
+
+_Et Rubro, Aureus_, Fulvus, Croceus.
+
+_Et Cœruleo, Viridis_, gratissimus omnium, teste _Syracide_, c. 41. v. 22. Cujus rei ratio in moderamine accurato Refractionum sita est, quam dat Flavus, inter Album lucidissimum, Rubrumque fortissimum intermedius; et Cœruleus, inter Rubrum istum impetuosum, ac Nigrum planè inermem, intermedius. _Illustris Cartesius_ ad commendandam _Viriditatis gratiam_ Simili utitur, à Pane, quem nemo facilè fastidit, et Octavâ in Musicis, quæ universaliter item delectet, petito; _libr. de Homine, §. 20_:
+
+_Et Nigro, Fuscus_; aliis etiam Leoninus.
+
+_Rubro_
+
+_Et Cœruleo_, PURPUREUS: cujus Differentias, ne Tabulam hanc fusiùs extendamus, proponemus in mox sequente Paragrapho.
+
+_Et Nigro, Subruber_ vel Brunus.
+
+_Cœruleo_ vel Cyaneo, _et Nigro, Subcœruleus_, vel Nigro propè, propiùs, aut proximè accedens.
+
+§\. 10. Cujusmodi Differentias _Kircherus_ etiam (_libr. Mund. Subt. Sect. 1. cap. 5. pag. 14._) strictim tetigit, easque tali circiter Schemate, à me aliquantulùm distinctius hîc, pleniùsque exhibito, adumbrat; et Dispositionem istam sine dubio ex Opticâ _Fr. Aguilonii_ (lib. 1. propos. 39. pag. 40.) desumsit, ut conferre Autorem utrumque volentibus, patebit.
+
+[Figura --- _a._: Incarnatus. _b._: Viridis. _c._: Subruber, brunus. _d._: Cinerascens. _e._: Fuscus. _f._: Cinereus.]()
+
+§\. 11. Interim tempus est, ut directè nunc, stratâque Ordinis viâ meliore paulùm, aut commodiore, quàm quæ apud _Columnam_, cœterà _doctissimum_, habetur, ad declarandas _Purpuræ Differentias_ pergamus. Quæ mihi videntur duplices:
+
+_Essentialis una_, quâ _Purpura_ (Veterum præsertim) habita est vel
+
+1\. _Rubra, in Cœruleum tendens_, h. e. aliquantò plus hahens Rubri, quàm Cyanei: quam _Petr. Joh. Faber_ (lîb. 4. Panchym. sect. 5. cap. 14. pag. 502. b.) putat _ortum habere ex purissimo sulfure rubeo, quod eluceat in principiis seminalibus horum Piscium, et, ut Sanguis in Animalibus_ (Sanguineis Terrestribus putà) _rubeat_.
+
+§\. 12. Quæ et _Tyria_ vocata, teste _Columnâ_ in Epistolâ Dedicat: et _Sarrana_, et _Phœnicea_ aut _Punicea_, et _Tarentina_, et _Hyacinthina_.
+
+Ac _Tyria_ quidem dupliciter,
+
+_vel à Tyro, Nymphâ, Amasiâ Herculis_, qui illius Amore, Purpuræ Usum primus introduxerit, si _Polluci_ credimus, quem _Polyd. Vergilius_, lib. 3. de R. Invent. c. 6. citat his verbis: _Tyrii ferunt, captum Amore Herculem cujusdam Nymphæ indigenæ, cui nomen Tyros. Quam sequebatur canis: qui irreptantem scopulis Purpuram conspicatus, peresâ carunculâ, sua sibi Labra cruore puniceo infecit. Cum igitur ad puellam adisset Hercules, delectata illa inusitatâ Tincturâ, affirmavit, sibi cum illo posthac nihil fore rei, nisi ad Se Vestem afferret, etiam Canis illius Labris splendidiorem. Quocirca Hercules, inventâ Animante, collectoque Sanguine, munus Puellæ detulit primus, ut Syrii dictitant, Puniceæ Infecturæ Autor_:
+
+Vel à _Tyro Urbe_, ac Tyriis, ejus Incolis: quòd hi Capturâ et Usu excellentium Purpurarum olim essent celebres, et Infectores optimi. Sanè, per _Tyriam Purpuram_, maximè intellectam fuisse _Rubram_, nimisquam clarè patet ex his _Claudiani_, (d Nuptiis Honor 1, v. 114.)
+
+_Amplexu careat Purpura Regio;_  
+_Et Vestes Tyrio Sanguine fulgidas,_  
+_Alter Virgineus nobilitet Cruor._
+
+Et _Tyriam vestem_, tanquam ex Purpureis optimam, notanter poni à Poëtis passim invenias. Ex quibus memoriæ subeunt _Virgilius_ 1. Æn. v. 340. cum _Martiali_ lib. 4. epigr. 28. et lib. 6. epigr. 11. Idemque, quem modò citavi, _Virgilius_ 3. Georg. v. 17. _Ostrum_, (h. e. Purpureum colorem, Arte ex suô Testaceo excoctum) _Tyrium_, tanquam nobilissimum celebrat, ibi:
+
+_Illi Victor ego, et Tyrio conspectus in Ostro,_  
+_Centum quadrijugos agitabo ad flumina currus._
+
+Vel _Sarrana_ etiam dictaest Rubra _Tyriorum Purpura_. _Sar_ enim Phœniciœ olim Urbs, quæ posteà Tyrus: ac inde _Sarranum Ostrum_, i. e. Tyrium, vel præstantissimum. _Virgil._ 2. Georg. vers. 506:
+
+_Ut gemmâ bibat, et Sarrano dormiat Ostro._
+
+Id quod _Sandysius_, Anglus, aptè declarat, lib. 3. Itinerarii, (German. edit, pag. 466:) agens incidenter ibi de Panni, preciosâ hodienum Tincturâ imbuti genere, _Scharlach_, his verbis: _Welcher Nahme scheinet von Ihr, (Urbe Tyro) herkommen Zu sein. Dann Tyrus wird Sar genennet, weil Sie auf einem Felsen, davon Syria den Nahmen hat, lieget; etc. massen dann die Arabier Scan für San, und Scar für Sar aussprechen_.
+
+_Phœnicea item, aut Punica_, à [GREEK], cruento, vel [GREEK], quod [GREEK] vel rubrum denotat: unde _Phœnices_, populi, vel Rubicundi, dicti, quod apud Ipsos Tinctura Purpuræ vel inventa olim, vel certè celebris fuerit; alio nomine _Pœni_ aut _Puni_: quos eosdem cum Phœnicibus esse, ex _Salmasio_ docet _Ant. Thysius_, notis ad _Sallust_. Bell. Jugurth. p. 242: et _Malum Punicum_ dicitur, quod Grana ipsissimum ex Rubro purpurascunt, aut, ut _Ovidius_ aptè canit lib. 4. de Pont. eleg. 15. v. 8.
+
+_Punica sub lento cortice Grana rubent._
+
+Vel _Hyacinthina_ etiam; postquam _Hyacinthi_ haut semel Poëtis vocantur _Purpurei_. Et in specie non tàm Cœruleos illos Flores, Hyacinthi Orientalis nomine hodie cognitos, quàm _Lilia Rubra_, tanquam Sanguine tincta Hyacinthi Pueri, subintelligenda suadet _Balduinus_ (de Calceo Vet. Cap. 35. p. 335. 336.) _Ovidii_ versiculos (ex lib. 10. Met. Fab. 5.) adducens:
+
+_Ecce Cruor, qui fusus humi signaverat herbas,_  
+_Desinit esse Cruor, Tyrioque nitentior Ostro_  
+_Flos oritur, formamque capit, quam Lilia; si non_  
+_Purpureus Color his, argenteus esset in illis._
+
+Aut denique _Tarentina_; ut in _Columnæ nostri_ ad Cardinalem Sannesium Dedicatione, Purpuræ suæ, videre est.
+
+2\. _Violacea aut Cœrulea, in Rubrum tendens_, h. e. aliquantò plus Cœrulei habens, quàm Rubri: quam Mœroris et Gravitatis testem, Veteres _Conchylium_ dicebant, momente _Columna_. L. jam d. et ipsius Contextûs cap. 1. §. 11. 12. addens in mox-sequente §. 13. sine Buccino fuisse factam, quia Buccinum fecit, Purpuram ad Rubedinem tendere.
+
+_Accidentalis altera_, in specie _Gradualis_; quâ videlicet Purpura tàm Rubra, quàm Cœrulea diversas Ruboris sui aut Cyanei Intensiones aut Remissiones habet: quod fusiùs aliquantùm jamjam declarabitur.
+
+## Annotatio 6.
+
+### Ad Capitis ejusdem Loca eadem: _De Gradualibus Purpuræ Differentiis: et Cocco_.
+
+§\. 1. _Essentiales_ Purpuræ _Differentias_ sequuntur _Accidentales_, sub quorum Genere _Graduales_ stant. Perque eas intelligo Diversitatem eam, quâ Purpuræ juxta distinctos _Excessuum aut Defectuum Gradus Rubedinis suæ ac Cœrulescentiæ_, in tot discrimina, et veluti species novas, ultrò citròque à Se abeunt, quot alterutrius sunt Atomi Coloris, vel Corpuscula, in mixturis conspicua quidem, sed non determinabilia (quoad numerum) ullâ humanâ solertiâ, sed soli DEo cognita; et imitanda tam difficulter omnia, imò pleraque saltem, in Pigmentorū synthesi, quàm desperati res plena laboris foret, aut communiter est, exhibere exactè graduales Colorum omnium Differentias, quæ vulgò tantùm in Capillitiis Hominum occurrunt; in multiplici Foliorum Virore; aut Tuliparum, vel aliorum Florum, mirabiliter-discrepante Rubedine.
+
+§\. 2. Et potiùs _Differentiæ eæ_, quas fortè datur distinguere, habent se, ut _Claves, Toni, aut Semitonia in Musicis_: quorum quidem, vulgò notorum, videtur unus alterum immediatè consequi; sed certè in ipsâ Naturâ Soni, ejusque Exaltationibus ac Depressionibus, multò plures occurrunt Discrepantiæ, judicium Auris eludentes, quia consistunt in strictissimis quibusdam Minutiis, non secus, atque in _Ulnâ_ vel _Lineali_, pedem Geometricum, vel 12. Uncias longô, non animadvertimus, an in unâ vel alterâ Unciâ inter metiendum alias res, excessus aut defectus admittantur Punctulorum duorum, trium, aut quatuor. Si verò anomaliæ illæ nimiæ sint; evidenter quoque cadunt sub visum, et differentiam notabilem pariunt, peculiari nomine, fracti vel integri Unciarum Numeri, mox mox exprimendam.
+
+§\. 3. Itaque in _distantioribus Purpuræ Differentiis_ est necessariò acquiescendum, tanquam Variationes plùs perceptibiles in Organo Visûs subministrantibus: neque si judex earum aliquis abeò callidus, exercitatusque sit, (quale quid de Mercatoribus putatûr) ut triginta, quinquaginta, imò vel centum Purpuras, sciret quambene discernere; veruntamen juraret, singularum Paribus alternatim sumtis, non posse identidem novas species intercedere; et harum quibusvis combinationibus iterum alias; ad Millenatios usque ac ampliùs.
+
+§\. 4. Quin, ut ea, quæ et cerni communiter à nobis possunt, et discerni, hîc maximè sectemur; _Purpura_ tam Rubra, quàm Cœrulea, juxta _perceptibiles_ Colorum _Gradus_, ejusque Intensiones ac Remissiones, rectissimè distinguitur
+
+_in genere_, in
+
+Saturatam, de quâ h. l. §. 5.
+
+Et Dilutam: de quâ §. 6.
+
+ac _in specie_ dein, in
+
+_Rubram_; Eamque vel
+
+Saturatam; de quâ §. 7. Et quidem dupliciter:
+
+excelsè; de quâ §. 8. et seqq.
+
+Et profundè: de quâ §. 17.
+
+Et Dilutam: de quâ §. 18.
+
+Et Violaceam aut Cœruleam: eamque pariter in
+
+Saturatam; de quâ §. 19.
+
+excelsè, de quâ §. 20.
+
+profundè: de quâ §. 21.
+
+Et Dilutam: de quâ §. ult.
+
+Ad hujusmodi Differendi modos ac species, discimina quævis reducuntur, Memoriæque sine negocio imprimuntur.
+
+§\. 5. _Purpura Saturata_ videlicet, (_Saturans rectiùs_) _in genere_ est, quæ Atomos sui generis quàmcompactissimè locatas habet, citra intercursum foveolarum multarum, aut coloris præsertim tertii generis. Ita primus, quod sciam, ego describo: et laudo eos, qui aliàs, cum _Columnâ_ c. 1. §. 11. _pleniorem_, aut firmiorem; vel _floridum_, h. e. (ibidem ex Plinio) _Flores, qui Colore commendantur, provocantem_, vocant.
+
+§\. 6. _Purpura Diluta_ é contrario est, quæ in materiâ laxiùs dispositâ est, vel ob interventum tenuioris cujusdam Rei, præsertim Aquosæ, fortitudinem suam, Visum movendi amisit, prout Cibus aquosus Nutrimentum etiam præstat minùs stabile, ad saturitatem ducens, aut firmum.
+
 ...
