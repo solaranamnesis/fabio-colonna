@@ -74,6 +74,8 @@
 
 ## [Annotatio 6.](#annotatio-6-1)
 
+## [Annotatio 7.](#annotatio-7-1)
+
 ...
 
 ---
@@ -973,5 +975,56 @@ Ad hujusmodi Differendi modos ac species, discimina quævis reducuntur, Memoriæ
 §\. 9. _Rosæ Purpureæ_ exemplum ipse inculcat _Columna_, c. 1. §. 12. eâque adspectu nil esse gratius, paulò antè (§. 11.) ex _Plinio_ dixerat; qualem imprimis _Milesiam_, (_Plinio_ eidem dictan) celebrat _Sachsius_, (Gammorol. lib. 1. cap. 16. pag. 370.) quam Damascenam _Lobelius_, intensè rubentem _Camerarius_, et Domesticam Puniceam _Matthiolus_, citante _C. Bauhino_ (Pinac. Theatr. Bot. lib. 12. pag. 481. a sub Rosæ Rubræ titulo) appellat.
 
 §\. 10. Et _Coccum_ dein _Autor noster_ (§. 11. 13.) cum eâdem comparat. Quo Nomine tres præcipuè Res intelliguntur: _1._ _Frutex_ ipse, dictus _Ilex Coccifera_, vel Ilex Aculeata Cocciglandifera _C. Bauhini_, (lib. 11. Pinac. pag. 425.) aut Coccus Baphica _Dioscor_. Frutex surculosus, in multis Hispaniæ locis, inque Galliâ, propè Monspelium, nascens, foliis oblongis, in ambitu, (instar Aquifolii) aculeatis, baccis rotundis, rubris, ad tingendum sumtis: quam plantam omnium convenientissimè _Bellonius_ (lib. 1. Obs. c. 17.) describit. _2._ _Baccæ præsertim_, famosissimi ejus Fruticis, vel _Grana_, Lentis magnitudine, aut Pisi minoris, colore Sanguineo rubentia, sed albo pulvere adspersa, ut habetur in Epitome _Matthioli_, (p. 774.); in quorum medullâ generantur rubri _Vermiculi_, (unde Gallis Vermeillon) ex quibus, antequam avolare possint, captis, fit Tinctura: maturi enim redditi, vesiculā, in quâ continentur, rumpunt, et avolant, notante _Ursino_ Vol. 1. Anal. Sacr. l. 3. c. 29. p. 204. Aliquibus _Baccæ_ simpliciter; vel _Granum Infectorium_ (Italis Grana da Tingere:) ab usu, Sericum aut Sericeas Laneasque vestes Succo sanguineo animaculorum istorum, aut Succo Granorum imbuendi; Germanicè Scharlach-Beer: Græcè [GREEK]: unde _Coccinea Purpura_, i. e. rubra: _Coccina Vestis_, quæ Cocci, vel Vermiculorum ejus, Succo tincta est. Quam Vocem reperio in Sacris, _Matth. 27. v. 28. [GREEK], _circumdederunt Ei chlamydem coccinam_: vel _Coccinum_, substantivè, _Apocal. 17. v. 4._ [GREEK], i. e. _Et mulier erat circumdata Purpurâ et Coccinno_: cùm quo loco confer mox mox cap. 18. v. 12.
+
+§\. 11. Sed istud nostrum _Coccus aut Coccum_ (perinde enim id legitur) minimè confundendum est _sive cum Cocos aut Coccos de Maldivâ_, sic dicto apud _Garziam ab Horto_ lib. 1. Hist. Arom. c. 26. Palmæ Indicæ scil. genere, fructus angulosos subrotundos, extrinsecùs villosos, parandæ variæ supellectilt idoneos, intùs cortice perquam-duro, et in vasa ac pocula tornabili constantes, ferente: quo nomine tamen alios, ovales, ab his diversos fructus, depingit _Chabræus_ de Stirpib. p. 29. convenientes cum Nuce Medicâ, de quâ _Augerius Clutius_ perscripsit: _sive cum Coccis Orientalibus_, vel Granis Orientis, Cocco Maldivensi multùm minoribus, Cocculis de Levante (vel Cocculis Elephanticis, corruptè) aut Cocculis Officinarum dictis, noxiæque virrtutis; quorum Planta vel Arbor, judicio Ejusdem _Chabræi_ (d. l. p. 26.) incognita, virtusque cæteroquin egregia sit, ad Pisces infatuandos; (vide Append. _Ejusdem_ p. 597. 598.)
+
+§\. 12. _Nec Confundendum cum Cocconileâ, vel Coggygriâ_, quæ pro Cotino _Plinii_, vel Cotyno coriariâ, habetur, tingendis (ratione Radicum et Ligni, non verò Baccæ ullius) pannis apta: _sive cum Ficûs Indicæ Granis, Cocchenille, vel Cochinillia_ vocatis, apud _Bauhinum_, (Pinac. Botan. pag. 458. b.) quæ nihil aliud sint, quam Vermiculi, Foliis adhærescentes, et tenui pelliculâ obducti, in Indiâ (occidentali), et nati simili ratione, atque _Bellonius_ ante-laudatus refert, (in fine dicti capitis) aliud insuper genus inveniri, cujus neque Veteres, neque Recentiores meminerint, _Excrementum in Myrtis nascens_, unico Animali vivo, Vesiculâ incluso, præditum: _sive cum Cocco Radicum_, seu Granis rubentibus, quæ Pimpinellæ radici adnascantur, et Serica roseo colore tingant, _Chermesin_, vocato, suffragante Epitomatore _Matthioli_, dum (p. 773.) sub Cocci Infectorii Imagine hanc Censuram addit: Non recté, inquiens, sentiunt, qui Coccum Infectorium, et Chermesinum idem faciunt: _sive demum cum Coccognidio_ vel Granis maturis rubris Laureolæ, primo statim Vere, Flore purpureo, suaviter fragrante, superbientis.
+
+§\. 13. _3._ _Cocci nomen_ abstractè obtinuit _ipse Color_ tam Cocco proprius, aut Vestibus eodem tinctis; quàm Rebus quibusvis aliis, competens, modò insigni utcunque aliquâ, ad Coccum plus minùs _Rubedine_, accedens; ut imprimis in _Charmesin, vel Chermesino_ videmus, quem utique â Cocco distinctum quid esse, modò diximus. Nihilominùs ipsemet Coccus etiam _Carmesini_ nomen interdum accipit; et coincidere cum _Kermes_ vel _Chermes Arabum_ putatur adeò, ut decantatissimam etiam hodie, toto Terrarum Orbe _Confectionem_ Cordialem Monspeliensium, de isto potiùs, quàm Cocci nomine, Nomen suum ac famam obtinuisse, et _Alkermes_ vocari, constet; rubore suo micantem à Cocco, cujus Succo imbutus Pannus, peculiariter _Scarlatum_ dicitur, Coloribus reliquis, imò Colorum Colori et velut Luci, (Albedini) ambitiosè quasi imperans, juxta illud _Horatii_ lib. 2. Sat. 6.
+
+--- --- _Rubro ubi Cocco_  
+_Tincta super Lectos canderet Vestis eburnos._
+
+Atque Cocci istum fulgorem à _Poëtâ_ pro Purpuræ specie habitum fuisse, interjecto mox uno aut altero versiculo, ibidem ex connexâ Voculâ _Ergo_, constat:
+
+_Ergò ubi Purpureâ porrectum in Veste locavit, etc._
+
+§\. 14. Porrò _Sanguinem_, ad exprimendam _Purpuræ Rubræ, saturatò celsèque micantis_ naturam, superùs (§. 8.) Exempli loco adduximus. Cujus asserti fidem ut operosè quæramus, ob quotidianam tot Sanguinum, ex Homine ac Brutis effluentium copiam, ex morâ concessâ dein magis magisque cœrulescentem, haut videtur opus. Imó _Purpureum_ jam olim _Sanguinem_ notanter _Homerus_ vocavit alicubi, in excogitandis ad naturam rei Epithetisaptis, felix. Quem Latinorū posteà Phrasis; _Purpuream vomit ille Animam_; et similes, sunt sequutæ. Quare ex Recentiorum Scriptis hoc unicum saltem addam, quod insigniter facit ad Rem. Ita enim seribit _diligentissimus ac politissimus Autor, Erasmus Francisci_: (part. 1. Ost- und West-Ind. Lust-Gartens, p. 390.) _In dem Königreich Sina hat es eine art Affen, so man Singsing nennet; aus deren Blut man eine köstliche Purpur-Farbe zurichtet. Wenn man dieselbigen wil fangen, setzt man einige Geschirr mit Wein in den Wald, welchen sie treflich gern sauffen, und sich gantz und gar darinn bezechen:. hernach, wenn sie alle voll, kan man ihrer ohne sonderbare Müh fähig werden_.
+
+§\. 15. Nec _Laccæ_, sive Nativæ adhuc, sive ad formam Pigmenti redactæ, est hîc obliviscendum. Quæ quidem vulgò videtur ad _Colores exellenter-Rubros_ spectare: eandem tamen etiam, non sine mixturâ Cyanei, tàm floridè _Erubescere_, pictoribus præsertim constat, qui temerè utique agerent, si Aureum Colorem ex Flavo et Rubro misturi, Laccam Auripigmento adderent; quia Cœruleum (in Laccâ) clam subrepit, et desiderati Phænomeni gratiam evidentissimé evertit. Quæ fusiùs his verbis declarantur ab _Aguilonio_ (merentur enim adscribi) dum lib. 1. Optic. Propos. 39. pag. 41. sic ait: _Plurimùm interest, an Lacca, an Cerussa_ (quæ itidem, sed simpliciter, Rubet) _in Aurei Purpureivè Compositionem adsumatur. Sandaraca namque_ (h. e. Auripigmentum, quod flavum est) _Cerussæ tostæ indita, aureum jucundum gignit; non item verò commixta Laccæ, quod hæc Cœrulei portionem habeat, quæ juncta nativo Rubori, Flavæque Sandaracæ, trium Simplicium Miscellam producit, austeram ac invenustam. Rursus Laccæ rubedo, quæ Cœrulei quadantenus est particeps, adjuncto quidem Indico_ (quod Cœruleum est) _in vividum Purpureum commutatur: Sandaracæ verò intrita, ob trium Simplicium congressionem, livescit, et prorsus austera evadit_.
+
+§\. 16. Imprimis verò maximam apud Priscos, _Rubei Excellentis aut Excelsi Fulgoris_ gloriam, preciumque præ aliis, nacta est _Purpura Tyria Dibapha_, h. e. bis-tincta, ut ex _Columnâ_, in præsentis Capitis §. 22. discimus: descendente voce à Græco [GREEK], i. e. _bis_, et [GREEK], _tingo_. Unde etiam [GREEK], _intingo, vel mergeo_; eratque Baptismus olim Lavacrum immersionis utique, nec verticalis tantum irrorationis aut irrigationis. _Dibapho_ autem Magistratus Romanus, tanquam preciosiore Purpuræ genere, in Prætextâ utebatur: et facetè _Cicero_ alicubi: _Curtius_, inquit, _noster_ [GREEK] _cogitat: sed eum Infector moratur_. Cujus Purpuræ Titulum Græcum, Romani quidam Poëtæ, tanquam eodem genio acti, sic circumscribunt; _Horatius_ nempe, lib. 2. Od. 16:
+
+--- --- _Te bis Afro_  
+_Murice tinctæ_  
+_Vestiunt Lanæ._ --- ---
+
+_Seneca_, in Hercule Oetæo, vers. 663:
+
+_Nec Sidonio mollis aheno_  
+_Repetita bibit Lana rubores;_
+
+Et _Claudianus_, lib. 2. de Laud. Stiliconis, vers. 333:
+
+--- _tincta simul repetito Murice fila_  
+_Contulimus pensis._ --- ---
+
+Intercessisse tamen his etiam Pannis diversos gradus Tincturæ suæ, aut _Purpurei excellentis Ruboris_, vero persimile, imò necessarium est: quis enim vel cœruli, vel rubri congredientes in Tincturam nunc hujus, nunc alterius Texturæ, Atomos omnes ultro citròque numerabit?
+
+§\. 17. Quin his missis, ad _Purpuram Rubram_, non excelsè amplius, sed _profundè saturatam_, memor superiùs. (§. 4.) dictorum, ut me convertam breviter, et hanc etiam Exemplo uno ac altero declarem; dico paucis, ipsummet _Autorem nostrum_, facere (cap. 1. §. 13. et 39.) _Concreti Sanguinis_ mentionem. Et penè profundioris aut obscurioris, (cum misturâ cœrulei,) Rubedinis, solent esse _Caryophylli_ quidam hortenses fl. pleno. Omnium _profundissimam_ verò _Purpuram Rubeam_, sed saturanter tamen Visum afficientē, existimo esse eam, quæ ex _Bitumine_ resplendet, nigredini penè proximam, si standum à partibus _Dioscoridis_, qui, citante Ipsum _Aldrovando_ (lib. 3. Mus. Metall. cap. 14. pag. 379.) inter Notas genuini Bituminis, primam refert hanc, si Purpuræ modo splendeat.
+
+§\. 18. Saturatæ huic Rubedini purpureæ opposita dein fuit _Dilutior_: qualem forté in _Tulipis_ quibusdam, ex Rubro cœrulescentibus, ante plenam sui eruptionem, vel etiam dum sensim exolescunt, et Folia Floris habent decidua, quis quærat.
+
+§\. 19. _Alterum Genus Purpuræ, h. e. Violaceæ_, similiter in Saturatam et Dilutam distinguebamus. Et _Saturatam_ porrò statuimus, Excelsè aut Profundè talem.
+
+§\. 20. _Excelsë aut summè talis_, vel maximè florida, censetur ab _Autore_ (Cap. 1. de Purpurâ, §. 11.) ex _Plinio_, conspici in Violâ Serotinâ, _Conchyliorum_, ut ibi scribitur, _vegetissimâ_.
+
+§\. 21. _Profundior aut Obscurior_, dicitur Nigricans, vel (_Plinio_ eidem) _Color Austerus in Glauco, et irascenti similis Mari_, citante _Columnâ_, (l. d. §. 12.) Exemplumque ibi infertur _Violæ_ purpureæ Montanæ, quam _Virgilius_ proin Nigram dixerit: et nos non insulsè addi hîc posse _Malvam_ hortensem atro-purpuream, censemus.
+
+§\. 22. _Violacea Dilutior_ demum notatur ab _Autore nostro_, conspicua esse in _Heliotropio_ (§. 11.) et _Amethysto_, quem Ianthinum, (h. e. Violaceum, [GREEK] quasi) vocaverit _Plinius_ sæpe-laudatus: quo ipso de Gradualibus Purpurarum Differentiis jam sit dictum satis.
+
+## Annotatio 7.
+
+### Ad Capitis 1. §. 20. 21. 22. 23. et 24. _De Murice_.
 
 ...
