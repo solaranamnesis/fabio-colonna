@@ -76,6 +76,8 @@
 
 ## [Annotatio 7.](#annotatio-7-1)
 
+## [Annotatio 8.](#annotatio-8-1)
+
 ...
 
 ---
@@ -1026,5 +1028,27 @@ Intercessisse tamen his etiam Pannis diversos gradus Tincturæ suæ, aut _Purpur
 ## Annotatio 7.
 
 ### Ad Capitis 1. §. 20. 21. 22. 23. et 24. _De Murice_.
+
+§\. 1. _Muricis_ porrò iterata apud _Autorem nostrum_ mentio fit, in diversis Capitis hujus locis, diversoque Sensu. Quapropter in his etiam aliquis ordo quærendus est; qūem breviter et convenientissimè existimo esse talem:
+
+§\. 2. Accipitur nimirum vox ea _1._ propriè et famosissimè _pro Aculeis et Eminentiis_, quemadmodum Rerum quarumlibet, e. g. _Scopulorum_ Maris, apud _Virgilium_, aut _Cacuminum_, ad _Carduos_ Sylvestres pertinentium, apud _Plinium_ citante utrumque Autorem _Columnâ_, hoc Cap. §. 21: ita _Testaceorum_, aculeis longis aut brevioribus, crassis, tenuioribusvè constantium; et præsertim _Purpuræ_, (ibid. §. 24.) tanquam Animalis Testacei, Muricibus, in ambitu armati et velut Munimentum undique, ad Leges _Fortificatoriæ_, muniti. Ita enim bellè satis loquitur _Ludovicus Moscardus_, Nobilis Veronensis, (in Descriptione Italicâ proprii sui Muséi, lib. 3. c. 53.) hanc in Rem: _é fortificata di moltiplicate Punte, come chiodi, con bellissimo ordine disposte_.
+
+§\. 3. _2._ Tralatitiè magis, et ampliatione quâdam, _pro Purpurâ totâ_, vel Animali Testaceo, aculeato, ex quo Purpurea Vestium Tinctura olim parata est; suffragante _Columnâ_, cap. 1. §. 3. 20. 21. et 22. _Plinii, Ovidii_, ac _Horatii_ autoritate utens; quorum Verba ipsa nolo retrahere huc. Aut _3._ in specie _pro Purpurâ, Mensis illatâ_, Conchyliumque Græcè dictâ: _Column._ l. d. §. 23.
+
+§\. 4. Vel _4._ pro _Colore Purpureo, Pannisvè_, eodem tinctis. Ita enim _Autor_ noster l. d. §. 22. _Tyrius Murex_, inquit, _id est, Purpura, in Tyro tincta, ex Tyriis Muricibus; scilicet Purpuris_. Et confestim addit: _Sed et Murex Tyrius pro Colore ipso acceptus fuisse, patet apud Virgilium._ etc. Et _Sacrum Muricem_ simili sensu acceptum, offendas in Corpore Juris Civilis, (_Leg. 3. Cod. de Vestibus Holoberis, Lib. 11._) his verbis: _Vellera adulterino Colore fucata, in speciem Sacri Muricis, intingere non sinimus_.
+
+§\. 5. Et quoniam Purpura (Animal) est Turbinatorum tam Aculeatorum, quàm Aculeo carentium, imò in genere, Testaceorum facilè omnium Regina; adhuc laxiùs diducta est _Muricis_ significatio, et per illum notantur _5._ _Turbinata quævis, Aculeis prædita_; quorum Piscatores antiquitùs dicebantur _Murileguli_ (_Rubricâ de Murilegulis, lib. 11. Cod._) rectiùs sine dubio _Muricilegi_, vel _Muricileguli_ vocandi. Protrahebant enim ex Mari non Mures, sed Murices, h. e. Testacea Turbinata, aculeis prædita.
+
+(_Columnæ_ Verba de Murice Aurito maximo Marmoreo.)
+
+§\. 6. Quorum Species sunt perquam multæ; sed inter illas notatu digniores, _Purpura_, ob quam totus hic _Columnæ_ Tractatus primariò conscriptus est; et _Murex Auritus Maximus Marmoreus Exoticus_, quem alio in loco, _in Observationibus videlicet Aquatil. et Terrestrium, cap. 31._ describit, verbis sequentibus; quæ huc infero, tùm ob affinitatem materiæ, tum ob raritatem Scripti. Itaque isthæc sic sonant: _Interno Colore, lævore, duritie, et pondere marmoreo cum sit Testaceum hoc, hujusmodi variis cognominibus denominare placuit. Muricis nomen tribuimus, non quod planè Muricem esse asseramus; sed quòd ex eo genere esse videatur, ob Tuberculos novem circumdispositos, per Orbem medium, quanquam non aculeatos. Turbine ita brevi definitur, ut ab excedente Oris marginis appendice, sive Limbo, Aurem effigiante, occultetur, unde Auriti cognomen. Exteriùs obliquè Striatus leniter, ad oris limbum usque, qui contrario modo rugosus est; juxta illius circumferentiam Rostri vice testa recurvatur, et deficit, foramen relinquens ad Linguæ usum. Oris hiatus ab aliis omnibus differt, quod non rotundus, et lævigatoriæ Conchæ modo, ferè oblongus, angustus; sed lævis, et parallelis Lineis definitur; et in imo appendice magna, lata, plana, sicuti et tota Oris margo veluti depressa. Neapoli ab Amico, Fontium constructore, dono habuimus, quindecim abhinc annis. Sesquipedalis est longitudinis testa, oris rima pollices decem, duos lata_.
+
+§\. 7. Vel _6._ ex _Turbinatis aculeatis ea præcipuè, quæ Tincture apta_. Ita enim iterum in præsenti _Autoris_ cap. 1. de Purp. §. 20. legimus, citantis _Plinium_ pro Se. Et _7._ indifferenter _pro Turbinatorum Genere_, eundem _Plinium_ posuisse, ibidem ait: quæ Turbinata, constituunt aut complectuntur plerasque species Testaceorum Univalvium; sed non omnes; uti jam supra alicubi etiam, ni fallor, monuimus. Imò _8._ universaliter _pro communi genere Testaceorum omnium_; quæ magna profectò Vocis ampliatio est, ut major penè vix esse possit.
+
+§\. 8. Quo prætextu denique, in defensionem sui, indubiè _Plinius_, si viveret, sit usurus, quod _Muricem_ _9._ peculiariter quoque _pro Buccino_ dixerit, ut ex _Columnâ l. d._ constat. Quod Buccinum, stans sub Genere Turbinatorum, sub se Buccina quidem aculeata hoc ipso complectitur; et eatenus cum iis Muricis Vox quadrare posset: sed ausim dicere, Buccina glabra é contrario, aut Striata quantumvis etiam, vel rugosa, non-aculeata tamen, aliquantò Aculeatis plura esse, aut certè vix pauciora. Itaque quàm benè his etiam (Non-Aculeatis) Nomen istud attribuatur, non video. Ipseque _Columna_ toties cæteroquin totiesque _Plinii_ Autoritate usus, _Improprietatis_ eundem, in hoc negocio, arguit, (§. 21.) _quia in Buccino_ (sunt Ipsiusmet Verba) _non sunt aculeati et extuberantes Orbes_.
+
+## Annotatio 8.
+
+### Ad Capitis 1. §. 24. _De Purpurisso et Purpurinâ_.
 
 ...
