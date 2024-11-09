@@ -82,6 +82,8 @@
 
 ## [Annotatio 10.](#annotatio-10-1)
 
+## [Annotatio 11.](#annotatio-11-1)
+
 ...
 
 ---
@@ -1154,5 +1156,37 @@ Intercessisse tamen his etiam Pannis diversos gradus Tincturæ suæ, aut _Purpur
 §\. 11. _Ex dictis facilè explicatur 1. Omnis illa Varietas Colorum, et Aculeorum, quæ in testis, tum nostratibus, tum peregrinis, admirationem multorum meretur; cum aliunde non procedat, quàm ex limbo Animalis, testâ inclusi. Etenim hic limbus, dum ex parvulo sensim crescit, et dilatatur, in singulis Testularum oris, sui imaginem relinquit; quandoquidem dictæ oræ vel crescant ex humore, qui ex limbo Animals exsudat; vel sint ipsi limbi Animalis, qui ut in Canibus Marinis dentes, de novo forsitan succrescunt im prioris limbi locum, et eorundem Dentium instar, versùs exteriora sensim evolvuntur._
 
 §\. 12. _2. Margaritarum productio; tum earum, quæ testis adhærentes, figurâ non usque adeò rotundâ sunt, tum earum, quæ obstructis in superficie Animalis Pororum ostiis, intra ipsos Poros figuram rotundam adipiscuntur: namque inter margaritarum cortices, et concharum margaritiferarum testulas id discriminis duntaxat interest, quod testarum Fila in eodem quasi plano sita sunt, Margaritarum verò cortices fila habeant disposita per eandem superficiem Sphæricam._
+
+§\. 13. _Elegans hujus rei exemplum inter alias Margaritas à me diffractas una præbuit, quæ exteriùs candida, interiùs corpus nigrum includebat, simile grano Piperis, et quâ colorem, et quâ magnitudinem; in quo Filorum, alterâ extremitate centrum respicientium, situs evidentissimus erat, ordinesque, seu sphæræ eorundem Filorum dignosci poterant._
+
+§\. 14. _Eadem occasione vidi, 1. Margaritas variis tuberibus inæquales, nil aliud esse, quâm varias parvulas margaritas, iisdem communibus crustis inclusas. 2. Margaritas flavescentes multas, non solùm in superficie extimâ sphæræ, sed in omnibus sphæris interioribus, flavo colore tinctas esse; ut adeòque dubitare ampliùs non liceat, esse colorem illum adscribendum mutatis humoribus Animalis: et Æthiopem lavare, qui illum eluere studet, nisi vel adscititius color fuerit, utpote in collo gestantis eas natus, vel sola extima sphæra flava fuerit, utpote si Animalis humores non fuerint immutati, quo tempore interiores sphæræ formabantur._
+
+§\. 15. _Unde patet illorum error, qui inconsultâ naturâ Margaritarum, imitationem ex ingenio fingunt, cum vix quisquam feliciter illud aggressus fuerit, nisi alter Lucullus Conchis margaritiferis Vivaria repleverit, et vel in ipsis Animalibus modos eas multiplicandi inquisiverit, vel inde didicerit difficultatem, Naturæ labores imitandi. Non negaverim, posse arte confici globulos è variis corticibus compositos, sed eosdem cortices è Filorum sibi mutuò appositorum serie ordinare, unde nativus ille margaritarum splendor dependet, id verò factu difficillimum judicaverim._
+
+§\. 16. _Quæ Testæ Terris obrutæ latent, ad tria genera reducuntur. Primum genus earum est, quæ modo-descriptis adeò similes sunt, ut ovum Ovo: quandoquidem, ac ipsæ Testæ in Testulas resolvantur, et Testulæ in Fila, Filorumque eadem diversitas, et idem situs sit. Has Testas Animalium quondam in Fluido viventium partes exstitisse, etiamsi Testacea marina nunquam visa fuissent, ipsius testæ consideratio demonstrat; et Concharum Bivalvium exemplo patebit._
+
+§\. 17. _Quotempore formatæ sunt Conchæ Bivalves, materia intra conchas contenta 1. habuit Superficiem lævem, et poris innumeris pertusam, duplicemque diversitatem Pororum: 2. Substantiam flexilem, et minùs duram ipsâ testa: 3. ab unâ parte cum ambiente materiâ communicavit, ab alterâ parte nullum cum eâ habuit commercium: 4. Sensim recessit à parte illâ, quâ negatum ipsi fuerat commercium cum materiâ externâ versus illam partem, ubi liberum illi commercium erat cum eadem materiâ: 5. potuit sese per intervalla aperire, pro amplitudine illius anguli, quem Cardines Testarum admittunt: 6. exparvo in magnum crevit: 7. Materiam, unde confectæ Testulæ sunt, per sui substantiam transmisit._
+
+§\. 18. _Materia externa Conchas ambiens 1. si non omninò fluida exstitit, saltem minorem vim resistendi habuit, quàm erat vis dilatandise in materiâ, intra Conchas contentâ. 2. Continuit Substantiam fluidam, aptam conficiendis inde Testularum Filis; quæ omnes Loci tum interni tum externi conditiones, in ipsâ Dissertatione argumentis et figuris demonstratæ, satis evincunt, intra Conchas Animal, extra Conchas Fluidum exstitisse._
+
+§\. 19. _Secundum genus earum Testarum est, quæ modòdescriptis cæterò similes, solo colore, et pondere ab illis differunt; dum quædam leviores justo, aliæ justo graviores deprehenduntur, quod hæ Poros habeant Succo adscititio repletos; illarum Pori leviorum partium expulsione ampliati sint; de quibus nihil ampliùs subjungo, quòd nihil sint, nisi Testæ Animalium, vel petrefacfæ, vel calcinatæ._
+
+§\. 20. _Tertium genus earum est, quæ solâ figurâ similes sunt, modô-descriptis Testis; reliqua in totum ab iis differunt; cum nec Testulæ ibi, nec Fila, multo minùs Filorum diversitas observetur. Harum aliæ Aëreæ sunt; aliæ lapideæ, colore, vel nigro vel flavo; aliæ marmoreæ; aliæ crystallinæ; aliæ alterius materiæ, quarum omnium productionem sequenti modo explico._
+
+§\. 21. _Ubi Testæ substantiam, succorum penetrandi vis dissolverit, iidem succi, vel terrâ hausti, reliquerunt Testarum spatia vacua, (quæ ego testas Aëreas appello) vel novâ accedente materiâ alterati, pro ejusdem materiæ varietate eadem Testarum spatia vel crystallis, vel marmore, vel lapide implevére; unde ortum habet Marmoris illa pulcherrima species, quam Nephiri appellant, quæque aliud nihil est, quàm sedimentum Maris, omnis generis Testis plenum, ubi consumptâ testarum substantiâ, lapidea substantia in locum ejus successit._
+
+§\. 22. _Non patitur instituti mei brevitas, ut afferam omnium illorum descriptionem, quæ in singulis Testarum é Terris erutarum, generibus notatu digna observavi: quocirca, missis aliis, sola sequentia huc referam: 1. Concham margaritiferam in Etruriâ repertam, adhærente ipsi conchæ margaritâ: 2. Pinnæ marinæ majoris partem, ubi consumptâ Bisso, color Bissi remansit in materiâ illa terreâ, quæ concham repleverat._
+
+§\. 23. _3. Ostreorum miræ magnitudinis testæ, in quibus plures cavernæ oblongæ à vermibus exesæ reperiuntur, illis omninò similes, quas in lapide Anconitano, Neapolitano, et Siculo certum genus concharum inhabitat; quæ Lapidum cavitates nisi ab insectis, nidos fabricantibus è luto, formatæ fuerint, (quod vix crediderim, cum ipsa medii Saxi Substantia, ubi nullæ cavitates reperiuntur, eadem sit cum substantiâ cavitatum, quæ omnes circa superficies hærent) à vermibus erunt exesæ, cum et superficies cavitatis illud suadeat, et in multis cavitatibus repertum corpus ex Filamentis crassioribus contextum evincat, quod ipsi cavitati magnitudine, et figurâ respondes._
+
+§\. 24. _Certè nec a Conchis, nec circa Conchas factæ sunt, cum organis ad rodendum destituantur id generis Testacea, nec Testacea, nec Testarum Figuræ ulla cavitas respondeat. Nec mirum est, Mari exposita Saxa, Conchyliorum Ovis à Mari expulsis receptaculum præbere in dictis Cavitatibus, cum earum nullam hactenus viderim manifesto exitu destitutam. Quod si quis dixerit, a Succo lapidescente, circa certa corpora concreto, cavitates illas productas fuisse; quædam cavitates eadem materiâ undique obductæ absque ostio reperiunda fuissent._
+
+§\. 25. _4. Testam interiùs ex parte consumptam, ubi adesæ substantiæ jacturam crusta Marmorea supplevit, variis Balanis tecta; ut adeoque certò concludere liceat, a Mari relictam in Terris testam, secundò in Mari deportatam, iterum novo sedimento obrutam, et à Mari derelictam fuisse: 5. Ova minutissima, et turbines vix nisi oculis Microscopio armatis conspiciendi. 6. Pectines, Turbines et Conchas bivalvas, non crystallo testas, sed tota substantiâ crystallinas. 7. Vermium marinorum Tubulos varios._ Hucusque ex _Stenone_.
+
+## Annotatio 11.
+
+### Ad Capitis 1. §. 28. 29. et 30. _De Ætate, Nutritione, Motu, et reliquis Actionibus Purpuræ_.
+
+§\. 1. Potissimum, quod in præsentis Capitis §. 28. 29. et seq. pertractandum sibi proponit _Autor_, est, ut edoceat, an et quatenus ex solâ Testæ inspectione, detur de _Animalculi Ætate_ judicare? Sed quia de Ætate et Vitâ talium Corporum vix licet agere, nisi Nutritionis, Augmentationis, Loci Natalis, et similium, aliqua simul injiciatur mentio: age hæc etiam breviter attingamus, addendo de _Actionibus reliquis_, quæ facere ad rem quamproximè videbuntur.
 
 ...
