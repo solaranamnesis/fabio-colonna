@@ -1141,8 +1141,6 @@ Intercessisse tamen his etiam Pannis diversos gradus Tincturæ suæ, aut _Purpur
 
 §\. 5. Et denique ratione Ordinis aut Sitûs, easdem in _Rectas_ distribuo, juxta longitudinem Testæ, quæ ab apice ejus ad orificium supputatur, procedentes; _Tranversas_, vel ductum Spiræ sequentes, ut Helices tot constituendæ extrinsecus videantur aut sint, quot Striæ: et _Obliquas_, ac velut diagonales.
 
-[_Stenonis Verba de Testulis ac Filis Testaceorum_.]
-
 §\. 6. Ex cujusmodi dictis Stiarum Differentiis _Columna_ (cap. 1. §. 28.) in describendâ _Purpuræ Testâ_, duas præsertim conjungit, et conspirante ipsâ passim experientiâ, ita de iis ait: _Ab his_ (Prominentiis Canaliculatis) _dependent tuberosæ atque parum muricatæ Striæ, Testam per longum exasperantes_.
 
 §\. 7. Deinde, in Annotationis prægressæ §. 18. non tam oblitus sum, _Stenonianam de Testulis ac Filis Testarum_ (ex Ejus Prodromo Dissertationis de Solido intra Solidum) doctrinam, Contemplatu dignissimam, in gratiam Purpuræ, apponere ibi; quàm consultò ac specialiter negocium id huc transscripsi, ne scilicet interjectu ejus, tanquam rei, obiter quasi incidentis, interrumperetur Contextus Rerum ibi propositus, ullivè Lectorum ansa ad nauseam tantò exstantior daretur.
