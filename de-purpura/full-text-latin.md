@@ -84,6 +84,8 @@
 
 ## [Annotatio 11.](#annotatio-11-1)
 
+## [Annotatio 12.](#annotatio-12-1)
+
 ...
 
 ---
@@ -1234,5 +1236,31 @@ _Non nescimus, Plinium Muricer pro Buccinis, i. e. [GREEK] Aristotelis, usurpass
 §\. 14. Circa _Generationem_ ipsam hæc imprimis notanda veniunt: Materia; Modus; et Effectus, vel multiplicatio Sui per Ova.
 
 §\. 15. _Materia_, ex quâ _Purpuræ_ generentur, _Rondeletio_, post _Ælianum_, censetur _Materia Putrescens_. Huic ab aliis _Limus, Favago_, aut etiam _Saliva_ superadditur. Ex _Limo_ enim (nullâ re ampliùs) in genere Ostreoderma quævis nasci, seria, (quod miror) persuasio est _Kircheri_, lib. 12. Mund. Subterr. Sect. 1. cap. 9. pag. 345. b. _Limum_, vel _Favaginem_, quæ é Limo Terræ et materiâ putrescente orta fuerit, _Nieremberius_ (lib. 6. Hist. Nat. cap. 17.) inculcat. _Aristoteles_ autem hâc ex parte, Veritati accedens paulò propiùs, lib. 5. Hist. Animal. Cap. 15. _Salivam_ conjungit cum _Putrilagine_, citante _Moscardo_ (lîb. 3. Mus. cap. 53.) his verbis: _Nasce_ (La Porpora) _non dalla Congiuntione, ma dal Fango, e da Materia corrotta: nella quale lasciando una Spuma, come Saliva, ivi moltiplica, come scrive Aristotele._ Et ad Salivam _Scaliger_ quoque, de Subtil. (Exerc. 4. sect. 17. nî fallor) provocat.
+
+§\. 16. Per quam undecunque etiam ex Purpurâ deductam, certè tamen _Principium aliquod Seminale_, animalculis istis _Proprium_, subtilis naturæ, in spumeo vel Salivali corpore tantisper recubans, meritò intelligimus, sicut Semina reliquorum Animalium, (imò Plantarum) h. e. Auræ Genitales summæ puritatis, subtilitatisque, in vehiculo crasso viscidioreque natura recondidit, ne justo citiùs diffluant, et Specierum, per propria Seminia, propagatio fiat irrita.
+
+§\. 17. Quod _Principium Genitale_ Animalium, et in specie Purpurarum, etiamsi cum _Panspermiâ_ Rerum cognationem non levem habeat; imò maximam sui partem ex Sphærâ Universi sit deductum; in _Semine Generali_ tamen illarum, ut _Faber_ (Panchymic. lib. 4. Sec. 5. cap. 14. pag. 503. a.) appellat, propterea minimè acquiescendum est, quia caret Modificato Situ et ordinatione particularum, quibus ad Purpurillam producendam opus est. Quæ modificatio potis ipsi Purpurarum Corpori divinitùs demandata est; et prout organa earum se habent, juxta talem conditionem eorum etiam Character peculiaris toti Oeconomiæ Spermatis imprimitur. Quale quid _Ideas Operatrices_ vocare possemus cum _Marco Marci_, celebri Bohemiæ Medico ac Mathematico, cujus Liber de iis, ex Ingenio sublimi natus, meretur Lectionem. _Petri Johannis Fabri_ modò dicti verba veruntamen adducamus: _Fiunt, et progignuntur Semine Generali, et Spiritu Seminali Aqueo: quod pedetentim Calore Solis in locis peculiaribus disponitur, et animatur in Conchas. Non enim Ova pariunt, nec Semen habent particulare, progignantur, sed Vitam suam habent ex Chaos Aquæ, h. e. ex Spiritu illo Generali, qui Aquis incubat, etc._
+
+§\. 18. _Modus generandi_ pariter, ob quandam obscuritatem, diversam hominibus conjecturam peperit; nec satis liquet, an ad Purpurarum genesin sufficiat sola _Genitalis Humoris Effusio_: vel opus insuper sit _Transfusione_ quadam, et œstro Veneris, inter utrumque Sexum, prægresso.
+
+§\. 19. In Simplici _Effusione Salivalis aut Spumei Humoris_ videtur _Moscardus_, ex Aristotele, acquiescere, anteà (§. 15.) laudatus. Cum quo consentit _Jonstonus_ (d. Aquatilib. Exsanguib. pag. 43. a.) dum ait: _Effluit in Terram id, quod continebant. Atque eo in loco Purpurillæ minutæ oriuntur atque concrescunt._ Imò, si exenplum de Ostreis huc quadrat, nec planè de vetitate Historiæ dubitandum sit, (verbis Præclari _D. Wormii_ lib. 3. Mus. cap. 7. pag. 254) _Mirum est, quod refert Petrus Gyllius, Se à Viris non paucis spectatæ fidei accepisse, Byzantinos Ostrea serere; et eorum quasi Lac seminare. Id ipsum enim in Aquam injectum, ad Saxa ima adhærescere, et Ostrea fieri._
+
+§\. 20. Per _Transfusionem_ verò intelligo jacturam Liquoris Spermatici, de Purpurâ unâ (Animali) in alteram. Quod utrum _Affrictu_ fiat, vel _Inosculatione Cornuum mutuâ_, non liquet. _Affrictu_ utique Propagationem fieri, existimat _Freigius_, lib. 33. Quæst. Phys. pag. 1024. scribens: _Verno Tempore mutuo affrictu Lentorem cujusdam Ceræ salivant._ Quorsum refer, quod ipse _Autor_ noster (de Purp. cap. 1. §. 20.) profert.
+
+§\. 21. _Effecta Generationis Purpurarum_ sunt vel proximè, _Ova_; vel ultimò, Individua cultiora ipsa, in quibus Species propagetur, aut _Purpurillæ_.
+
+§\. 22. _Ova_ quidem _Purpuris_ denegari, modò (§. 17.) ex _Fabro_ percepimus: sed benigniores simus in admittendâ aut explicandâ Voce Ovi. _Ovum_ Doctoribus in Anatome nostris hodie est, quævis Genitura (etiam recentissima) quam Membrana ambit; orta, ut mihi videtur, ex necessitate materiæ, sicut pellicula Pulti obnascitur, quod calor particulas viscidas in vaporem non potuit redigere. Unde Humor genitalis intra Membranulam magis magisque elaboratur, irritato ibi Spiritu Architectonico, à vicinis Caloribus, ut alia occasione dixi. Perindeque est, sive Ova extra Uteros ponantur, sive non; magna sint, aut parva; conspicua, aut inconspicua; et Salivali Spumæ interdum innatantia; cortice duriusculo vestita, aut minùs; rotunda vel Ovalia aliquandiu maneant, aut ob flexibilitatem laxitatemque genitalis suæ Membranulæ, et directionem peculiarem sui Spiritus, statim Spirales quasdam convolutiones exordiantur; cujusmodi _Ovis Spiralibus_ Cochlearum aut Limacularum corniculatarum, recentissimisve Eorundem Fœturis, aliquot millies millenis hinc inde conspersa, tanquam nive aut grandine, videre est passim in littore Maris Balthici, Folia Quercûs Marinæ; ut imprimis Eclenfordæ, tribus abhinc Milliaribus, notavi.
+
+§\. 23. _Purpurarum_ Ova vel Semina itaque aut Spumam earundem prolificam, similiter in Vado Scopulis et Plantis submarinis puto allini: unde superventu Caloris Radiorum Solarium, per angulos acutos ex alveo Maris resultantium, Calefacientiumque ibi hærentia Corpora potiùs, quàm ut indifferenter Frigiditatem insignem locis submarinis debeamus tribuere, cultius cultiùsque efformantur tenella _Purpurillarum Corpora_, et Muricata ipsarum _Species_, lætè conservatur.
+
+§\. 24. Quibus hac ratione (citra ullius tamen præjudicium) explicatis; videamus, an et quales _Purpurarum_ sint _Actiones_ reliquæ, quibus Animalis ipsarum Natura clariùs porrò ab oculos ponatur. Eoque censu habentur hæ duæ: _Sensus_, ac _Motus_.
+
+§\. 25. _Sensibus_ omnibus non gaudent quidem, cum minor in Testaceis tam his, quàm omnibus aliis, Partium apparatus, Sensuumque numerus plenus ad Vitam iilorum minîmè necessarius sit. _Tactu_ tamen et _Gustu_ pollere, certum est. Et non auderem quidem, cum _Dn. D. Jonstono_ (de Aquatil. Exsanguibus, pag. 43. a.) _Odoratum_ insuper ipsis tribuere, quo Purpuræ valeant; et ad Escas proin é longinquo accedant: _Visum_ tamen é contrario iisdem non mordicùs denegarim, ob Oculos veluti, in medio cornuum conspicuos, ut ab _Autore_ nostro docemur.
+
+§\. 26. De _Motu_ verò paucula ad Capitis hujus 1. §. 34. dicemus.
+
+## Annotatio 12.
+
+### Ad Capitis 1. §. 33. et 34. _De Carnosis Purpuræ Partibus, ac reliquis, intra Testam contentis_.
 
 ...
