@@ -1263,4 +1263,41 @@ _Non nescimus, Plinium Muricer pro Buccinis, i. e. [GREEK] Aristotelis, usurpass
 
 ### Ad Capitis 1. §. 33. et 34. _De Carnosis Purpuræ Partibus, ac reliquis, intra Testam contentis_.
 
+§\. 1. Duriorem _Purpuræ_ Portionem, h. e. Testam, superiùs (Annotat. 9.) ab omni ejus parte ac latere abundè vidimus. Nunc nos ducit _Autor_, ut _Partium_ etiam Molliorum, in Testâ _contentarum_, instituamus scrutinium aliquod, postquam nimirum §. 33. mentionem injecit de _Carne_ illarum, _Cervice_, _Corniculis_, _Oculis_; nec non §. 34. de _Linguâ_, _Limbo gradiente_, vel _Carne_, extra Testarum, inter rependum, prominulâ. Hinc _Carneam Molem_ quasi totam, in genere primò, placet perpendere; inde ad Portiunculas ejusdem, quibus integratur, ordine procedemus.
+
+§\. 2. _Carnem Purpuræ_ convenienter _Jonstonus_ (de Aquatilibus Exsangu.) vocat _Musculum_ quendam fortem ac candidum, mediæ Testæ alligatum: nam certè Fibrarum Carnearum Texturâ gaudet firmâ et copiosâ adeô, ut, si citra tales foret, non video, quomodo Corpusculum id, Testam adeò duram, crassam, et tot eminentiis gravem, ferre citra languorem, et sæpiùs supra se à latere ad latus in spiram gyrare posset.
+
+§\. 3. _Color flavicans, densis Maculis, ex Cœruleo purpurantibus depicta_, ipsi adscribitur ab _Autore_ nostro, (cap. 1. §. 33.) _aliis exiguis luteis immixtis, præsertim in Cervice_. _Odor_ autem vix ullus, nisi summùm Marinus. _Sapor_ talis, qualis est Turbinatis reliquis; ut Salsum nempe Succum contineat, qui Alvum ducit. Ob _duritiem_ tamen et tenacitatem Fibrarum, Ventriculo minùs convenit, concoctuque difficilis est. Ac fuisse Priscis in Cibo, Scriptorum autoritate constat: _Martialis_ præsertim; cujus Distichon hoc _Columna_ tum Cap. 1. §. 23. tum alibi proinde recitat:
+
+_Sanguine de nostro tinctas, Ingrate, Lacernas_  
+_Induis: et non est hoc satis; Esca sumus:_
+
+ac hodienum Mensis inferri ab Italis suis, idem _Columna_ l. d. §. 36. 37. memorat.
+
+§\. 4. _Temperamentum Frigidum_ et humidum vulgò iis tribuitur: sed si balsamicorum aut nerveorum quasi Spirituum copiam, quâ tota Purpuræ Moles carnea vivaciter agitur; si Sanguinis item haut pauci manifestam præsentiam; si vim nutritivam aut medicam etiam contemplemur; _Calidius_ potiùs existimandum erit. Potestque de _Viribus medicis_ illius, antè-laudatus _Jonstonus_ legi.
+
+§\. 5. In specie, sic eandem liceat velut dirimere in _Partes_: ut nempe harum pleræque _Solidiusculæ_ quidem sint; _Fluidiores_ veruntamen etiam aliæ. _Solidiores_ porrò divido, in _Carnosas_, et Proprii generis. _Carnosas_ nomino, _Limbum_ gradientem; in eoque _Fauces vel Os_; _Caput_; in eoque _Cornicula_; et _Cervicem_; cum _Linguâ_. _Proprii_, aut ab his distincti _generis_, videntur esse, _Oculi_; _Ventriculus_; _Mesenterium_, _ac Cor_, cum _Hepate_ et _Papavere_ (si quæ horum sunt): præcipuè verò quæsita olim tot laboribus, tantoque precio redempta, Purpurei Laticis proma conda, _Vena_. Cujus _Sanguis_ demum, cum _Salivâ_, et _Succo_, ad _Partes fluidiores_ pertinent. Quæ omnia distinctim jam clariora fient. Tamen breviter.
+
+§\. 6. Ad _Limbum gradientem_ itaque quod attinet; per eum hîc intelligitur inferior illa, majorque Carnis pars, quæ extra Testam emergens, et per iteratas Expansiones Contractionesque sui immediatè tangit, et lambit superficiem Corporum, per quorum Plana fertur. _Limbumque gradientem vel repentem_ placuit dicere, ad distinctionem ejus à Limbo Purpurarum alio, qui se ipsum movendi, vim nullam habet, h. e. Limbo duro Testarum; prout de utroque, et quidem aliquantò pleniùs, infrà in _Lexico Ostracologico_, sub voce _Limbus_, actum est.
+
+§\. 7. _Fauces vel Os_ in anteriore Limbi jam dicti parte quadam situm, foraminequo rotundo pervium est; quâ parte nempe Purpura Scopulis adhæret, Lapides arrodit, ut _Wormius_ loquitur, et in _Stomachum_ exugens Liquamen nutritium demittit, quo scopuli sub Mari oblinuntur.
+
+§\. 8. _Capitis_ Turbinatorum notationem in _Lexico_ item abundè declaravimus. Speciatim verò _Purpuræ_, cartilagine umac durum _Wormius_ jam-dictus tribuit, lib. 3. Mus. cap. 8. pag. 258.
+
+§\. 9. _Cornua vel Cornicula_, parum aut nihil obscuritatis habent; imprimis quod in _Lexico_ identidem huic Voci explicandæ satisfactum sit; quò _Lector_ benignus remittitur. Limacum modo illa attollit, iisque iter pertentat; et ab illis differt saltem in hoc, quod Oculos non in summo eorum exsertos, sed circa medium infixos habet.
+
+§\. 10. Regio capitis illa, quæ proximè post Cornicula est, _Cervix aut Dorsum_ Carnis appellatur: quam maculis diversicoloribus variegatam, et exiguis luteis præsertim ornatam, notat in præsenti §. 33. Noster _Autor_.
+
+§\. 11. _Linguam Idem_ (§. 34.) describit quidem, et no-
+tanter ait, illâ Aquam fistulæ modo exspuere, _Se Vidisse_: in
+Icone tamen non expressit; et concipienda forsitan talis erit,
+qualem cæteroquin (servatâ proportione Animalculi) ex-
+hibet cap 4. in hâc Parvi Buccini Figurâ:
+
+[Figura]()
+
+In Purpurâ sanè _Longitudo_ Linguæ planè Digitalis tribuitur ex _Plinio_, lib. 9. c. 36. dum ait: _Lingua Purpuræ, digitali longitudine, quâ pascitur, perforando reliqua Conchylia._ Unde Proverbium: Purpurâ voracior.
+
+§\. 12. Illamque _Rondeletius_ firmam torosamque concedit, et Promuscidibus Muscarum, quæ inter cornua sunt, comparat; sed tam duram esse, ut _Testas perforet_, rectè negat; _Rostro id fieri_ addens, et quidem _Verisimiliûs_; quæ _Dn. D. Jonstoni_ Epicrisis est. Sed, quoad posterius hoc, fallitur uterque.
+
 ...
