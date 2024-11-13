@@ -86,6 +86,8 @@
 
 ## [Annotatio 12.](#annotatio-12-1)
 
+## [Annotatio 13.](#annotatio-13-1)
+
 ...
 
 ---
@@ -1299,5 +1301,27 @@ hibet cap 4. in hâc Parvi Buccini Figurâ:
 In Purpurâ sanè _Longitudo_ Linguæ planè Digitalis tribuitur ex _Plinio_, lib. 9. c. 36. dum ait: _Lingua Purpuræ, digitali longitudine, quâ pascitur, perforando reliqua Conchylia._ Unde Proverbium: Purpurâ voracior.
 
 §\. 12. Illamque _Rondeletius_ firmam torosamque concedit, et Promuscidibus Muscarum, quæ inter cornua sunt, comparat; sed tam duram esse, ut _Testas perforet_, rectè negat; _Rostro id fieri_ addens, et quidem _Verisimiliûs_; quæ _Dn. D. Jonstoni_ Epicrisis est. Sed, quoad posterius hoc, fallitur uterque.
+
+§\. 13. _Rostro_ enim id fieri, impossibile est: quia 1. Obtusum maximè illud est: 2. non simplex, sed geminatum ferè: 3. fragilius Testâ perforandâ, Præsertim Ostreæ. 4. Repandum, non rect-acutum. Et 5. quod maximum, ubi est maxima illa externa vis, quæ requireretur, ad Testam adeò gravem, magnam, irregularem, minusque acutam, in actu Terebrationis creditæ, et suspensam ritè tenere in æquilibrio, et circumagere fortiter, et circumagendo simul in Solidum aliud, pressivo modo, agere. Habet etenim Terebra Vim Serræ et Cunei. Cuneus verò vim Mallei et Plani Inclinati; ut _Mechanica_ nos docet. Unde Pignore in medium posito, præsumerem vincere, si vel forti et agili manu aliquis, Purpuæ Testam assumeret, et Rostro ejus terebrare tentaret Testam Ostreæ; non succesurum.
+
+§\. 14. Quin aliter paulùm _Plinii_ verba sunt capienda, explicandaque non de _Terebratione_ aliquâ rudi ac violentâ unius Solidi ab altero Solido, (à Purpuræ Rostro; aut Linguâ valdè durâ) sed quod Purpuræ Linguâ suâ, tanquam instrumento oblongo, stricto, et exploratorio, Rimas hiantium Ostrearum, aliorumque Conchyliorum, pervestigent primum, hinc damnosâ sibi Escæ spe, intrò se, in easdem recipiant, et à claudente Conchylio se, detineantur, ut tumefactam ibi, non possint retrahere.
+
+§\. 15. Unde Artificium, Purpuras ope Ostrearum capiendi, enatum jam supra (_Annot._ 11. §. 5.) ex _Heresbachio_ deteximus; cui suffragatur _Sandysii_, Angli, Relatio, quæ exstat in Ejus Itinerario, Germanicè reddito, (ubi de Tyro agit) pag. 465: _Die Zunge eines Purpur-Fisches ist ungefehr eines Fingers lang, und so spitzig und kurtz, daßer damit eine Austern-Schale auf brechen kan, welches auch die Ursach ist, daß er gefangen worden: denn die Fischer fulleten ihre Reusen damit, die sie in den Grund des Meeres sincken liessen. Wann nun der Purpur-Fisch darzu kam, steckete er seine Zunge darzwischen ein. Wann er nun die Austern heraus ziehen wollen, ward er durch das geschwinde zuschlüssen ihrer Schalen fest gehalten, daß er sie nach sich ziehen, noch so nahe beikommen konte, sie zu öffnen_.
+
+§\. 16. _Oculorum_ Purpuræ descritiponi, à _Columnâ_ ipso, (cap. 1. §. 33.) accuratò propositæ, quæ addam, non habeo, nisi, quod illorum mentionem aliam etiam facit _Severinus_ in suâ Zootomiâ (part. 4. pag. 350.) sed, dum dicit ibi, _longo tubulo esse impositos_, tam facilè aliquis posset ex his verbis colligere, Purpuras Oculos suos gestare in summo vel Extremo Cornuum; quàm in Medio eorundem: id quod _Columna_ multò diligentiùs ac distinctiùs expressit.
+
+§\. 17. _Ventriculum_ verò etiam vel _Stomachum_, cujus jam paulò antè (§. 7.) mentionem brevem ingessimus, quique faucibus ferè contiguus est, cum appendicibus depingit (nisi modò in Anatome valentiùs illum expanderit) Idem, quem dixi, _Severinus_: ac _Mesenterium_ prætereà illis tribuit, simile Lacertæ vulgaris. Fides sit penes Autorem.
+
+§\. 18. Item _Cor_, quod Ervi magnitudine sit, ipsi adscribunt Zoologi aliqui; quod alii contra habent pro _Hepate_, dicuntque viscidulum esse, lentore tenaci præditum; et _Papaver_, Græcè [GREEK], ab _Aristotele_ vocari, ad cujus latus Purpureus Mucus appareat. Est Palato gratius Carne, aut reliquis Purpuræ partibus. Scripsitque _Athenæus_, citante _Jonstono_, copiosiùs alere: at magis etiam Scillam sapere. Imò _Wormius_ Autor est, si quis copiosiùs eo utatur, Bilem Nauseamque procreare, atrique humoris copiam. etc.
+
+§\. 19. De _Venâ_ verò agetur inferiùs, in eâ ad _Columnam_ Annotatione, ubi de Porphyropœiâ, vel Purpurificio, sermo instituetur. Deque _Sanguine_, Succo, vel Muco Purpureo ibidem tractabitur.
+
+§\. 20. De _Salivâ_, quâ Purpuræ madent, sicut Turbinata quælibet alia, quâque superficiem Corporum oblinunt, per quam serpendo feruntur, puto rem esse vulgo notissimam. Per _Succum_ verò quatuor possunt intelligi: 1. Humor in Concavo Testæ dinatans, compositus velut ex salivali humiditate, resolutâ ibidem, et Aquæ marinæ haustæ partibus. Unde trahenda huc mihi videntur verba Autorum, qui Purpuras continere Succum Salsum, alvique ductorem, ajunt. 2. Salivalis jam-dicta humiditas. 3. Humiditas interna, balsamica, nutritiva (et quidni Genitalis etiam?) in ipsis Fibris carneis. 4. Cruor vel Mucus purpureus, de quo jam (§. 19.) dixî.
+
+## Annotatio 13.
+
+### Ad Capitis 1. §. 34. _De Actione iterum Purpuræ potiore aliquâ, vel Motu_.
+
+§\. 1. Ne longè nimis excresceret _Annotatio 11._ superiùs proposita; à fine ejusdem rejecimus huc, Considerationem Actionis _Purpurarum_ maximè nobilis, vel _Motûs_. Qui est vel Totius, vel Partium.
 
 ...
