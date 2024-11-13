@@ -1324,4 +1324,20 @@ In Purpurâ sanè _Longitudo_ Linguæ planè Digitalis tribuitur ex _Plinio_, li
 
 §\. 1. Ne longè nimis excresceret _Annotatio 11._ superiùs proposita; à fine ejusdem rejecimus huc, Considerationem Actionis _Purpurarum_ maximè nobilis, vel _Motûs_. Qui est vel Totius, vel Partium.
 
+§\. 2. _Tota Purpura Movetur_ Serpendo paulatim, ut Turbinata reliqua; suo domicilio tamen, vel Testâ, non egreditur, nisi ultra dimidium; nam intùs fixa hæret. In quo opere hæc duo, ut sic dixerim, in Testam beneficia redundant: 1. ut Lîmbi ipsius increscant quotannis, et tota Volutæ concameratio major fiat: 2. ut vi Volutationis istius Carnosæ, Testa transportetur de loco uno ad alterum, per modum Circumactionis. Quam his verbis describit _Columna_ Cap. 1. §. 34: _Testam aliquando gaudet circumagere, illam in totum extollens, corpore in basis modum ad hoc elato_.
+
+§\. 3. _Modus Volutandi_ successivis aut alernantibus Dilatationibus partis carnosæ in Limbos diductos, et Contractionibus _undosis_ ejusdem perficitur: ex quo non obscurè arguere licet _Motum_ quendam _Succi_ innati _Circulatorium_, periodico suo ingressu tubulos aut fibras carneas, turgescere ac iterum detumescere facientem, ita, ut dum superior aut anterior pars tumet, opposita ei fiat flaccida; et contra. Dum Purpuræ intra Testam ac Operculum latent in Hyeme, verisimile est, motus illos humoris balsamici aut plané cessare, aut illud, quod omnium subtilissimum est, subtilissimæ auræ instar, citra magnam Carnis inflationem, partem Carnis unam post alteram, reciprocè perambulare.
+
+§\. 4. Sub _Motu Partium_, Agîtationem Corniculorum intelligo, et Ductionem Aquæ. Ex quibus ad _Vibrationem Corniculorum_ quod attinet; præter contractiones retractionesque illorum, in Cochleaceo genere quovis conspicuas, vulgòque notas, hoc imprimis peculiare Purpuris _Columna_ noster ait esse, quod, ut in §. 33. refert, 1. Oculos non in summo, sed medio insculptos habeant: 2. incurvare cornicula illa, supra sedem oculorum, non rarò, ad specialem horum defensionem soleant. Unde Fibris tàm rectis, quàm circularibus constare, conjectura non planè ociosa in medio relinquitur.
+
+§\. 5. Et _Ductionem Aquæ_ h. e. sorbitionem ejusdem, redditionemque iterum, vel explosionem congruam, Natura videtur ad Commodiorem Earum Nutritionem excogitasse; minimè verò _augendi ponderis_ gratiâ. Cur enim Purpuræ, ut graviores fiant in Aquâ, Aquam sorbeant? Nullum Elementum in propriâ Sede gravitat.
+
+§\. 6. Tum et _Vocem emittere Purpuras_, absit, ut imaginemur; tantum abest, ut statuamus seriò. _Fuchsius_ quidem (lib. 1. d. Comp. Med. eap. 15. pag. 68.) scribit, Purpuras _interdum, flante Vento per anfractus sibilum emittere, ut Tuba videatur_: sed qualis est Scopulis concavis, Urceo, aut similibus rebus, Vociferandi potentia, dum spiritu fortiùs inflatæ susurrum reddunt aut sibilum; talis etiam concameratis Purpurarum Testis est. Hoc est, nulla propriè et per se; quoniam Folle, Fistulâ aut aliis vociferandi organis destituuntur.
+
+## Annotatio 14.
+
+### Ad Capitis 1. §. 37. et 38. _De Purpurariis et Porphyropœiâ, vel Purpurificio_.
+
+§\. 1. Ultimum, quod ad hoc Caput l. _Columnæ_ mihi videtur, Notationem aut Commentariolum aliquem mereri; sunt _Infectores, Purpurarii_, et _Porphyropœia_, vel Purpuræ præparandæ antiquum Artificium. Quibus demum peractis, puto, me explicationi _Autoris_ quammaximè satisfecisse. Reliqua Tractatûs sui Capita, sicut secundariò magis, quàm ex intentione principali, ab _Ipso_ adjecta sunt, ob cognationem materiæ: ita non est, ut in iis explicandis prolixiùs occupemur.
+
 ...
