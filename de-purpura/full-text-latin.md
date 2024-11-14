@@ -1448,7 +1448,7 @@ Ad differentias Testaceorum à Summo aliquo Genere, ad omnium ima exempla, vel S
 
 ### Ostracologiæ in ordinem redactæ Tabula 1.
 
-[_referenda ad Annotat. 9. §. 4. in Columnæ Librum de Purpurâ.]
+[_referenda ad Annotat. 9. §. 4. in Columnæ Librum de Purpurâ._]
 
 Testæ vox, prout Naturalibus Rebus tribuitur, et inde TESTACEA Animalia, (Græcè [GREEK]) dicunter vel
 
