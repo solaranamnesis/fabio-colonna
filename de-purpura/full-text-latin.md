@@ -1444,4 +1444,220 @@ Resistendum hîc nonnihil est, et in officinis Infectorum et eorum, qui colores 
 
 ### _Lectori Benevolo._
 
+Ad differentias Testaceorum à Summo aliquo Genere, ad omnium ima exempla, vel Singularia, methodicè ducendas sic, ut fundamenta distinctionum citra ullam interruptionem doctrinæ per meras Dichotomias, expressè positas, vel facilè eliciendas, procedant, et non facilè possit monstrari Testaceum aliquod, cui locus et statio sua quasi, jam non sit intra Methodicam istiusmodi Tabulam præstructa; ad Laborem, inquam, hunc nemo Autorum hucusque, quod sciam, efficaciâ ullâ Se composuit; quod veruntamen non tàm Ignorantiæ illorum, Ignaviævè, quàm mirandæ Conchyliorum, quæ pasum occurrunt, Varietati, et in varias, Vitæ magis necessarias, distractis Illorum curis tribuo. Sed, si omnes ita cogitare vellemus, quistandem dissipatæ in mille lacunas Doctrinæ Ostracologicæ ferret auxilium, ad quam exornandam non minùs, quàm prædicanda Magnalia DEI cætera, tenemur? Itaque quò indigestius hucusque in Libris Zoologorum selectis, et tantum non Canonicis, sensi Chaos, et aliquoties Ipse etiam (horis vacantibus) ob suscepti sine successu laboris perplexitatem, indignabundè quodammodo à frustra quæsito ordine digressus sum: eò fervidiùs mihi succrevit desiderium, post sæpe mutatas, atque iterum permutatas privatim Testaceorum meorum Coordinationes, utut plerumque anteà mihi relinquerent in animo alios aliosque scrupulos; tandem eò penetrandi, ut inexplicabilem hucusque visam, Testaceorum Varietatem, tali includerem Tabulæ, qualem (ob paginarum augustiam) in Tabellas plusculas discerptam, nunc sisto hîc: et sisterem certè stipatam subdivisionum subdivisionibus pluribus, nisi (nunc quidem) monstrandi genuinam doctrinæ sedem, circa Testas à Columnâ (lib. d. Purp.) allatas præsertim, potior cura esset.
+
+### Ostracologiæ in ordinem redactæ Tabula 1.
+
+[_referenda ad Annotat. 9. §. 4. in Columnæ Librum de Purpurâ.]
+
+Testæ vox, prout Naturalibus Rebus tribuitur, et inde TESTACEA Animalia, (Græcè [GREEK]) dicunter vel
+
+1\. Impropriè, de Rebus, spectantibus ad
+
+Viventia: et sunt, e. g.
+
+_Clypeus Testudinis_ Marinæ quadrupedis:
+
+_Nidus Avium_, seu Congelamen durum, Concavum, Tragacanthiforme, marinis Indiæ Scopulis impactum, in Offam, delicatulis Procis desideratam, resolubile, Germ. Vogel-Nest.
+
+_Tubuli Vermium_, ex Limo Maris indurato, seorsim aut super Coralia, Ostreas, Conchas, etc. quibus superincrescunt, exstantes.
+
+non-Viventia:
+
+_Testacea Petrefacta_: de quibus vid: _Colum. c. 16. §. 5. Nuclei Lapidei_, Testularum Concavo sub Terris conformes facti; falsòque pro Ipsis Testis petrefactis habiti. Qualis est apud _Col. c. 16. Concha Fasciata, Gemmeâ concretione repleta_: hâc figurâ:
+
+[Figura]()
+
+2\. Propriè: vid. TAB. 2.
+
+### Tabula 2.
+
+[_Referenda ad finem Tab. prioris._]
+
+Testacea propriè dicta, in Genere Animalium,
+
+Pedestrium, sunt; quotquot in Ovis adhuc, putamine duro cinctis, ante exlusionem sui delitescunt. Fœtus nempe
+
+Avium omnium: (Vespertilionem si exceperis) et Quadrupedū quorundā, e. g. Testudinis, Crocodili.
+
+Natatilium, sunt à Piscibus, Crustatis, et Mollibus distincta, omnium famosissimè dicta, TESTACEA, exstantia vel
+
+Confusim: _Testacea varii generis, in Massam compacta Lapideam_ aut Sabulosam:
+
+distinctim, Generis vel
+
+Incerti aut dubii: qualis videtur esse _Concha Exotica, Vertice muricatim_ (intellige turbinatim) _intorto, Column. de Purp. cap. 19._ Ex contextu enim _Autoris_ præcisè non liquet, Univalvibusnè, an Bivalvibus annumeranda sit?
+
+[Figura]()
+
+Certi ac determinati: de quo vid. TAB. 3.
+
+### Tabula 3.
+
+[_Referenda ad finem Tab. prioris._]
+
+Testacea Certi generis, dividuntur in
+
+Univalvia ([GREEK]) Orificii
+
+[Et Plurivalvia, ([GREEK]) vid. TAB. 10.]
+
+liberè patentis in
+
+[Strictioris: vid. TAB. 4.]
+
+Longitudinem,
+
+[GREEK], _Penicilli Marini_: nisi potiùs ad Tubulos Vermium, TAB. 1. notatos, pertineant.
+
+Pyramidaliter, _Dentalia_.
+
+Latitudinem
+
+_Lepades_ vel _Patellæ_, à patendo dictæ: quæ vel
+
+[Concha Natatilis: vid. Tab. 4.]
+
+veræ, et [GREEK] _Lepades_ (speciei multiplicis) partim
+
+Mediocres: e. g. _Lepas Exotica variegata Column._ de Purp. c. 6.
+
+[Figura]()
+
+Parvæ, e. g. _Lepas nova, Myrti Morbus: ibid._
+
+[Figura]()
+
+agriæ vel sylvestres: _Aures Marinæ_: Fulgore
+
+_Opalin-argenteo_, foraminibus pertusæ, dictæque _Columnæ, c. 18. §. 3. Aures Veneris_:
+
+_nullo_, et fuscæ potiùs: _Aures Marinæ Bellonii_ (lib. 2. Aquat. fin.) nisi potiùs Operculum quodpiam sint.
+
+### Tabula 4.
+
+[_Refer ad Terminalia Tabulæ prioris._]
+
+Testacea Univalvia, Orificii
+
+[Vid. TAB. 3.]
+
+Liberè patentis in
+
+Longitudinem
+
+Latitudinem:
+
+_Lepades_
+
+_Concha Natatilis_ [GREEK] _minima, Persicæ dictæ Recentiorum congener, Column. de Purp. c. 18._
+
+[Figura]()
+
+Strictioris: vel
+
+Sine Turbine, aut Testæ reduplicatione manifestâ:
+
+_Conchæ Veneris veræ_: quarum multæ differentiæ.
+
+_iisdē Analoga_ quædā, et Turbinatis accedentia vel
+
+planè non: e. g. _Concha utroque latere se colli-exotica, Column. c. 20._
+
+[Figura]()
+
+quadantenus, h. e. ductæ intùs Spiræ vestigium foris aliquod prodentia: _Conchæ et Conchulæ quasi Conchæ Veneris_, (plerumque albæ.)
+
+cum Turbine, aut Volutâ spirali manifestâ, _Turbinata_: de quibus vid. TAB. 5.
+
+### Tabula 5.
+
+[_Refer ad Tabulæ præcedentis finem._]
+
+Turbinata distribuenda videntur summè, in
+
+Ventre carentia: qualis est præsens _Voluta, utrobivis aperta_ (lapidea potiùs) _nullibi aliàs descripta_:
+
+[Figura]()
+
+Et Ventriosa: quorum aliqua Turbinem suum
+
+absorbent, et in se convolvuntur, e. g. _Nautilus Indicus major_, margaritali vel opalin-argenteo splendore:
+
+manifestant, in Testæ latere
+
+utroque (supernè ac infernè) _Cornicula Lacûs Plœnensis Holsatica_,
+
+alterutro saltem (familiarissimè) Ventrem gerentia vel
+
+Orbiculatum ac breviorem
+
+Ovalem circiter, superficie externâ
+
+Inæquali: vid. TAB. 6.
+
+Æquali, vel glabrâ.
+
+Cochleatum, et limbotenus præsertim ampliatum: vid. TAB. 7.
+
+Oblongiorem vel Elongatum: vid. TAB. 8.
+
+### Tabula 6.
+
+[_Refer ad terminalia Tabulæ præcedentis._]
+
+Turbinata Ventriosa, Turbinis manifesti in alterutro Testæ latere, Ventris sui Ovalis Superficiem Inæqualem habentia, protuberant vel in
+
+α\.
+
+Apices, aut Processuum exstantium stricturas, formâ
+
+_Muricum vel Aculeorum, Muricata,_
+
+Simpliciter talia:
+
+Mixtim talia, h. e. vel
+
+Muricato-Striata:
+
+Muricato-Rugoso-Striata: qualis est præsens _Purpura Column, de Purp. cap. 1._
+
+[Figura]()
+
+errucarum vel Tuberculorum: _Verrucosa_,
+
+Simpliciter talia:
+
+β\.
+
+Mixtim talia: h. e. vel
+
+Verrucoso-Rugoso-Striata.
+
+Verrucoso-Rugosa:
+
+Verrucoso-Striata:
+
+Productiones humiliores, per longum latumque Testæ protensas, formâ
+
+Rugarum: _Rugosa_
+
+Simpliciter:
+
+Mixtim, Rugoso-Striata.
+
+Striarum, rectâ deorsum, rectavè transversim, vel obliquè, el cancellatim, reticulatimvè procedentium; Striata
+
+Simpliciter:
+
+Mixtim; Striato-glabra: aut rectiùs, semistriata, et reliquam partem glabra vocanda: eaque duplicia: vel
+
+Fasciâ spiraliter ambiente cincta:
+
+non-Fasciata.
+
+### Tabula 7.
+
+[_Refer ad lin. penult. Tabulæ 5._]
+
 ...
