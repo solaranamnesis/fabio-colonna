@@ -92,6 +92,8 @@
 
 ## [Annotatio 15.](#annotatio-15-1)
 
+## [Doctrinæ de Testaceis]()
+
 ...
 
 ---
@@ -1407,5 +1409,39 @@ Verba ipsa verò piget, quod simul transscribi non curaverim, vel quod transscri
 §\. 3. Interim invenio, ex Earundem _Observationum Capite 22._ Descriptionem _Buccini lapidei_ me notasse. Quæ quidem ad Concham istam Gibbosam, utpote Bivalvem, non pertinet; nam _Buccinum_ est de Genere Univalvium Testaceorum: quia tamen et ipsum _Lapideum_ dicitur, ab eodemque _Autore_, rarò in Bibliopoliis reperiundo, describitur, ex quo olim descripsimus, quicquid ad Ostracologicæ suæ de Purpuris Doctrinæ partes facere visum est: ideòque Lectori non grave erit, hæc _Laudati Viri_ verba, Annotationi huic inserta, benignem ferre.
 
 §\. 4. Hunc in Modum itaque verba sonant: _Lævis est, oblongaque Testa, orbibus parum inferiores superantibus, ob illorum rotunditatem, numerum, et parvam incumbentiam: non enim inferiores à superioribus nimis occultantur, ut in aliis observatur, quibus non paulatim, sed statim in acutum desinunt, ventriosi cum sint. Differt ab aliis, quod inferior orbium pars incumbens aliis, limbum exprimit planum, inferiorem Orbem coronantem. Octo definitur anfractibus, se in acutum desinens, brevique rostro alterâ parte est. Marinam huic similem testam, sed non eandem habemus, magis ventriosam, eodem modo inferiores orbes limbo coronantem, colore vario; cinereo flavente ac albicante, parum oblongiore Rostro, nec recto. Neapoli frequens in Scopulis: longitudine quatuor pollices æquat._ Hæc _Columna_. Ex Cujus Observationibus pluscula alia porrò conferri poterant. Sed esto tandem hîc
+
+**Annotationum** in Purpuram Columnianam _**Finis**_.
+
+_NB. Ad replendum vacuum Spacium:_
+
+Locus LIBAVII, de FORNACE Purpurariorum, cujus superiùs (Annotat. ad Cap. 1. §. 37. et 38.) mentio facta est, exstans Parte 1. Com. Alchem. lib. 1. cap. 31. pag. 161. ita se habet:
+
+Resistendum hîc nonnihil est, et in officinis Infectorum et eorum, qui colores parant, contemplandum Fornaces cuniculatas, seu in quas per cuniculum agitur calor, aut ignis additur. Plinius lib. 9. cap. 38. scribit: _Venam Purpuræ, addito Sale triduo maceratam, fervere in plumbo, modicoque vapore torreri, affusâ aquâ, et ideo longinquæ fornacis cuniculo_. Quæ ratio hujus fornacis fuerit, inquisivimus etiam in Epistolis, et proposito balneo et sicco calore ansam dedimus ingeniis, et cotem porreximus, cui affricta nonnihil acutæ inventionis ederent. Sed relicti hactenus sumus, cum non libenter sese demittant in Sordidas fornacariæ disciplinæ tenebras, ne quid inquinamenti trahant. Nos sordidati, atratique jam pluribus furnis, non pigebit denuo perreptare Infectoriam, et resorptum os bolum hunc ruminare. Inter omnes fornaces, quarum nobis succurit species, nullam invenimus aptiorem ad istam cuniculatam formam, Acediâ. Revera enim hæc in se accenso ignis calore non fruitur, sed aliis à latere positis ministrat, in quas immittit Spiritum calidum, latere pertuso in cuniculi formam successumque. Tales sanè cuniculos dicimus, cum à latere adiguntur ad aliquid inferendum subducendumve cavi, tanquam ab animali cuniculo, vel gliribus facti. Sed cum longinquæ fornacis cuniculum nominet Plinius, oportet nos non tam brevem constituere, et labra labris proxime jungere, verum collum quoddam interjicere, per quod labens calor ed cortinam plumbeam perveniat debilior. Id dupliciter fieri potest: vel in eodem plano, vel foco inferiore et subterraneâ in cryptâ; sed cortinâ in officinæ pavimento collocatâ.
+
+---
+
+## Doctrinæ de Testaceis,
+
+#### In Ordinem congruum redactæ
+
+### _Specimen, Tabulis aliquot_
+
+#### Comprehensum; et non minùs connexum cum editis Annotationibus in Columnam
+
+## De Purpura,
+
+#### Quàm cæteroquin inserviturum facilè
+
+#### Ad Conchylia, et Testacea reliqua, in Conclavibus Principum, ac aliis, Recte Disponenda, cum brevi
+
+## Dictionario Ostracologico,
+
+### De partibus Testaceorum,
+
+#### _Autore J. D. M. Med. D._
+
+---
+
+### _Lectori Benevolo._
 
 ...
