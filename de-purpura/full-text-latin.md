@@ -90,6 +90,8 @@
 
 ## [Annotatio 14.](#annotatio-14-1)
 
+## [Annotatio 15.](#annotatio-15-1)
+
 ...
 
 ---
@@ -1371,5 +1373,29 @@ In Purpurâ sanè _Longitudo_ Linguæ planè Digitalis tribuitur ex _Plinio_, li
 §\. 15. De Usu enim Purpuræ apud _Romanos_, modò dictus _Virgilius_, ac in specie, quibus illam ibi gestare licitum aut non licitum fuerit, _Alexander ab Al: et Vinnius_ ad Instit. Juris (pag. 144.) nos informant. Intellige, vix nisi Imperatoribus, Regibus, Consulibus, ac Magistratibus, aut aliàs lautioribus; quorum Vestes, et Juvenum nobiliorum Prætextæ, ostentatione aliquâ Purpuræ luxuriabant.
 
 §\. 16. Hæc, inquam, non minùs in _Imperatorum_ Paludamentis, Togâque _Triumfantium_, ut est apud _Juvenalem_, quàm Calceis utrorumque fulguravit; utut tales etiam gestare Mulieribus in usu fuerit. Deque Purpurâ Militari videri _Meursius_ potest, in Mantisâ Libri de Luxu Rom. (pag. 28.) de Coccineis verò Imperatorum Calceis videatur _Nigronus_ (de Caligâ Veter. pag. 188. seq.) ac de Calceis eorundem Purpureis, et Cothurnis, simili Fulgore superbientibus, _Balduinus_ de Calceo Vet. pag. 94. 151. 184.
+
+§\. 17. Nec convenientiorem _Regibus_ Habitum, quàm Purpureum, tanquam illorum Personâ dignū, _Virgilius_ innuit, de _Didone_ partim, partim ac aliàs, de Rege _Latino_, canens. Et imprimis Consulibus ac _Magistratibus summis_ familiarem fuisse, _Prudentius_ in memoriam revocat; et tropo eleganti jam pridem _Claudianus Ovidiusque_, Purpuram pro Magistratu posuerunt: quale quid supra etiam (Annot. 2. §. 3.) monuimus. Neque apud Romanos solûm Purpura, Regius Habitus habitus est; sed apud alias Gentes etiam: aut Regum Amicis per singularem indulgentiā concessus. Cujus rei Exemplum in _Sacris_ habemus _Dan. 5._ v. 29 _1. Maccab._ 10. v. 20. Deque purpurato Rege Persarum, alicubi tractat _Herodotus_.
+
+§\. 18. Adhæc apud Romanos _Lecti_ quoque Purpurâ instrati, ut ex _Claudiano_ et _Martiali_ discimus. Imò _Fasciæ Puerperiales_ penes Illustres Personas, tinctæ Purpurâ, ut nos docet _Celeb. D. Th. Bartholinus_ de Puerper. Vet. pag. 36. Quidque sit aut fuerit, in Purpuris Imperatorum nasci, _Barthius_ adiri potest, in Adversariis, pag. 2383.
+
+§\. 19. _Libros_ item Purpurâ ornatos, apud _Martialem_, ex Ejus Locis aliquot colligere est. Eratque _Encaustum_, Atramenti genus Purpurei vel atri, quo Imperatores utebantur, Privilegiis et Epistolis, vel Decretis subscribendis: quod aliis omnibus, sub pœnâ Rebellionis, erat prohibitum, ut ex _Pancirollo_ refert _Nierembergius_ sæpe citatus, ex _Nicetâ_ unam atque alteram Historiam adducens. Dictæque sunt Literæ, Pigmento tali scriptæ, Literæ Rubricatæ, Literæ Regiæ, Subscriptio Imperatoris, Divina Manus, Sacra Annotatio, etc.
+
+§\. 20. Et _Encaustum_ ipsum, ab Inurendo: ([GREEK] Græcè) unde _Uriculum_ dici Latinè, _Watsonius_ (Theatr. Var. Rer. part. 1. Tit. 2. pag. 3.) memorat. _Encausticeque_ ipsa Ars, quâ pictura antiquitùs inureretur: cujus Materiam quidem, quomodo hæc pararetur, describit _Nierembergius_; Inurendi Modum verò hodie ignorari, _Ludovicus Demontiosius_, in Erudito de Picturâ Commentario (Architecturæ _Vitruvii_ annexo) rectè admonet. Fuitque postmodùm _Encausti_ vox latiùs extensa, ut hodie Atramentum quoque, et omnem liquorem Scriptorium denotet. Unde Encaustum album, Flavum, Roseum, Nigrum, etc. apud _Nerum_ (de Arte Vitrariâ) describi videas.
+
+§\. 21. Nec aliud sibi vult vox _Inchiostro_ apud Italos, denotans quidem _Atramentum_, quo communiter scribimus; sed corruptim certissimè est ex _Encausti_ voculâ enatum. Et de _Chalcographorum Encausto_ sic scribit diligentissimus _Sachsius_: (Ampelogr. lib. 2. sect. 9. cap. 1. p. 582:) _Refert Baccius, de Vino lib. 1. c. 21. ex Fæce Vini combustâ fieri Romæ Encausti genus, dum exsiccatas Fæcis placentulas comburunt, donec inflammentur in totum, subinde in Aquam conjicientes, unde albicantem supernè cinerulam abluant; reliquum, exstincti Carbonis instar, contundant, molantque cum Porphyrite Lapide, ac cum oleo nigrum malaxantes, parent Encaustum optimum, ad Tabulas æneas exprimendas_.
+
+§\. 22. Sed hæc de Encausto quasi obiter, occasione _Purpuræ in Libris_. Imò _Sacro_ etiam _Cultu_ quasi affectam Purpuram, licet colligere ex Carmine Veterum; quorum aliqui _Junonem, Venerem_ alii, vel ipsam etiam _Proserpinam_ Purpurâ indutam (in Versu, in quo quidvis licet, quod libet) concelebrarunt. Vel citra Poëma etiam, _Trabéa_ ([GREEK]) Vestis purpurea dicta est, quæ vel Diis sacrabatur; vel Deorum Vicariis placuit; Regibus nempe, ut antè-dictum. De quâ Voce distinctiùs agitur in Thesauro Latinitatis, _Clar. Viri, Andr. Reyheri._ Deque _Purpurâ_ tam _Mortuorum_, quàm Mortuos _Lugentium_, videri potest _Kirchmannus_, de Funeribus Romanorum.
+
+§\. 23. Et jàm pro declaratione Expositionevè Capitis l. de Purpurâ Autoris nostri, _Columnæ_, restat ampliùs nil, quàm ut _Abusum_ etiam _Purpuræ_ aliquem, lineolis duabus tribus intimemus. Quem duplicem facio: _Luxuriosum_ unum; _Contumeliosum_ alterum.
+
+§\. 24. _Luxuriantem in Vestibus Purpuram_ omnis Romana nobis abundè suppeditat Historia. Cui alias adde Exemplum illius Divitis apud _Evangelistam Lucam_, et ea, quæ hanc in rem doctè affert _Barthius_ in Adversariis, pag. 2521. et pag. 2522.
+
+§\. 25. Quantumque ad _Contumeliam_: hâc utique SALVATOREM perspicuè afficiebant Milites, Purpurâ Ipsum induendo, et malitiosè dicendo: SALVE REX JUDÆORUM.
+
+## Annotatio 15.
+
+### Ad Capitis 12. §. 5. _De Conchâ Gibbosâ lapideâ, et Buccino lapideo Columnæ_.
+
+§\. 1. In antecedentium Contextu aliquo jam-dictū est à me, quare minimè opus habeam, ritè saltem explicato Primo _Columnæ Nostri_ Capite, tanquam primariò et ex professo agente de Purpurâ, in reliquis explicandis, similem operam navare, tanquam secundariò ferè, et occcasionaliter magis ab _Illo_ annexis.
 
 ...
