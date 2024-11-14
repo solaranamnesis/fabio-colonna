@@ -1398,4 +1398,14 @@ In Purpurâ sanè _Longitudo_ Linguæ planè Digitalis tribuitur ex _Plinio_, li
 
 §\. 1. In antecedentium Contextu aliquo jam-dictū est à me, quare minimè opus habeam, ritè saltem explicato Primo _Columnæ Nostri_ Capite, tanquam primariò et ex professo agente de Purpurâ, in reliquis explicandis, similem operam navare, tanquam secundariò ferè, et occcasionaliter magis ab _Illo_ annexis.
 
+§\. 2. Quapropter misso Secundo, Tertio, et sequentibus Capitibus, ad _Duodecimum_ ut strictim me convertam, occasionem mihi dant Verba Capitis ejus terminalia hæc, postquam nempe de Conchis Anomiis rarioribus, Vertice Rostrato, actum fuerat: _Huic similem, majorem multò, Lapideam, depinximus in Primâ Parte, nomine Conchæ Gibbosæ_. Per hanc Primam Partem verò intelligit _Observationes Aquatilium et Terrestrium Rariorum_, ubi Concham istam Gibbosam Lapideam describit, suâ manu æri incisam; iconemque ejus affert hanc, quam Ligno sculpi dein procuravi:
+
+[Figura]()
+
+Verba ipsa verò piget, quod simul transscribi non curaverim, vel quod transscripta perdiderim.
+
+§\. 3. Interim invenio, ex Earundem _Observationum Capite 22._ Descriptionem _Buccini lapidei_ me notasse. Quæ quidem ad Concham istam Gibbosam, utpote Bivalvem, non pertinet; nam _Buccinum_ est de Genere Univalvium Testaceorum: quia tamen et ipsum _Lapideum_ dicitur, ab eodemque _Autore_, rarò in Bibliopoliis reperiundo, describitur, ex quo olim descripsimus, quicquid ad Ostracologicæ suæ de Purpuris Doctrinæ partes facere visum est: ideòque Lectori non grave erit, hæc _Laudati Viri_ verba, Annotationi huic inserta, benignem ferre.
+
+§\. 4. Hunc in Modum itaque verba sonant: _Lævis est, oblongaque Testa, orbibus parum inferiores superantibus, ob illorum rotunditatem, numerum, et parvam incumbentiam: non enim inferiores à superioribus nimis occultantur, ut in aliis observatur, quibus non paulatim, sed statim in acutum desinunt, ventriosi cum sint. Differt ab aliis, quod inferior orbium pars incumbens aliis, limbum exprimit planum, inferiorem Orbem coronantem. Octo definitur anfractibus, se in acutum desinens, brevique rostro alterâ parte est. Marinam huic similem testam, sed non eandem habemus, magis ventriosam, eodem modo inferiores orbes limbo coronantem, colore vario; cinereo flavente ac albicante, parum oblongiore Rostro, nec recto. Neapoli frequens in Scopulis: longitudine quatuor pollices æquat._ Hæc _Columna_. Ex Cujus Observationibus pluscula alia porrò conferri poterant. Sed esto tandem hîc
+
 ...
