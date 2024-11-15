@@ -1936,4 +1936,14 @@ Nudæ, aliæ Arundini, Tignis, Mytulis, aut rebus aliis innatæ.
 
 **A\.**
 
+_Aculei_: Prominentes acuti Processus Testarum. _Columna_ de Purp. c. 1. §. 21: _Impropriè Buccino Muricis nomen impositum videtur, propter Aculeatos sive Muricatos Orbes et extuberantes, quos habet Purpurarum genus_. Unde patet simul, pro Aculeis etiam dici Murices. _Col._ l. d. §. 24: _Aculeis, qui alio nomine Murices vocantur_. Et §. 27: _Aculeis illis, sive Muricibus longis, caret_. Diversitas illorum unde sit, de eo actum vide superiùs, Annotat. 10. ad Col. d. Purp. §. 11.
+
+_Ambitus_: Determinatio Patentioris Testæ, aut Limbus extremus. _Column._ de Purp. cap. 6. §. 1: _Lepas hæc_ (Exotica variegata) _magis cava, rotundiore ambitu, nec in angulos desinens_. Iconemque adducit talem:
+
+[Figura]()
+
+_Anfractus_: communiter Volutæ Spirales Turbinatorum: rectiùs distinctiones annuæ, formâ arcûs aut semicirculi eminentioris, in Testæ Volutâ hinc inde; ortæ ex Limbis singulis, qui crescenti Animalculo quotannis superadduntur, ut ætas illius non obscurè exin cognosci possit. Dicunturque Anfractus proin, quod juxta longitudinem Testæ hinc inde ex Voluminibus Testæ eminendo, eandem quasi infringant, hoc est, quoad partes, quæ singulis Annis ab Orificio amplo accreverint, distingui faciant. Confer etiam Vocem, _Limbus_. _Columna_ de Purp. cap. 1. §. 31: _In exiguis quandoque plures Orbium Anfractus observavimus: quos deinde atteri ob tenuitatem, aliis supercrescentibus, censemus, ob Animalis Volutationem, et Testæ imbecillitatem_. Priori modo tamen _Anfractûs_ vocabulum _Autor_, de Purp. cap. 9. §. 1. adhibet, de Cochleâ Terrestri Turbinatâ loquens: _Quinque constat Anfractibus_. Hancque dat imaginem:
+
+[Figura]()
+
 ...
