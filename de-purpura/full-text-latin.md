@@ -94,7 +94,7 @@
 
 ## [Doctrinæ de Testaceis](#doctrinæ-de-testaceis-1)
 
-## [Dictionarium Ostracologicum]()
+## [Dictionarium Ostracologicum](#dictionarium-ostracologicum-1)
 
 ...
 
