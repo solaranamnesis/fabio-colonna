@@ -1946,4 +1946,26 @@ _Anfractus_: communiter Volutæ Spirales Turbinatorum: rectiùs distinctiones an
 
 [Figura]()
 
+_Anus_: Meatûs Excretorii orificium vel apertura, per quam excrementum ejicitur.
+
+_Apertura_: Orificium amplum Testæ; præsertim Univalvium.
+
+_Apex_: Terminus Testæ in stricturam prominens, tàm quoad alterum Extremum, Orificio oppositum; potestque dici Acuta vel stricta Testæ Summitas: quàm quoad Latera, Muricibus exasperata, in Turbinatorum præsertim genere; dicunturque Aculei.
+
+_Appendices_: _Epiphyses, (quasi dicas, Adnascentiæ) Adnatæ aut prominulæ partes, tam duræ, ad Testam, quàm molles, ad Carnem Animalculi pertinentes. _Column._ de Purp. cap. 2. §. 2: _Appendices habet_ (Cochlea Iänthina) _binas, quarum altera exterior major_, etc. Icon relata est sub titulum _Glandis_.
+
+_Armatura_: Crusta tenuis metallica, fulgore Auri, Orichalci, aut Ferri, in convexo Testarum quarundam (lapidearum, ut videntur, conspicua, superinducta ipsis ex congelamine Halituum subterraneorum, resolutæ cujuspiam Rei metallicæ feracium.
+
+_Articulus_: Testæ Bivalvium ea pars, quâ unâ alteri per modum Ginglymi committitur. Confer titulum, _Ginglymus_.
+
+_Aures_: Propriè aliàs organum Audiendi. Sed quia Auris humana, et aliorum Animalium, concavo modo structa, foris protuberat; hinc tropicè in Ostracologiâ Auris dicitur tenuis, brevis, lata, Testarum quarundam Epiphysis: quæ planior est in Pectinibus; concava etiam in aliis.
+
+**B\.**
+
+_Brachium_: in Homine quid sit, notum. In Piscium doctrinâ, eorum Pinnæ aliquando Brachia vocantur, ob usûs similitudinem; inque Phytologiâ, Rami majores Arborum, ob quandam similitudinem Figuræ: In Technicis item Brachia Ballistarum, sunt arcuati earum processûs, qui chordâ intensâ adducuntur. Hîc verò Brachia, (aliàs _Cirri_) vocantur Eminentiæ longæ carnosæ, digitorum more divisæ, in acutum tendentes, Nautilo, Polypum æmulanti, proprii; interpositâ ipsis Membranâ, instar Palmipedum.
+
+_Byssum, aut Byssus_: Textura ex Lino vel Serico subtilis aliàs; eademque Purpurea, preciosissimaque olim: in Ostracologicis verò, ob quandam Coloris æmulationem, Lanugo vel Villi, ex commissurâ strictiore Pinnarum (quæ sunt species Testaceorum Bivalvium) progerminantes, quâ parte Terris infixæ hærent. Et videtur esse Musci purpurei species aliqua. Confer Vocem, _Fibræ_.
+
+**C\.**
+
 ...
