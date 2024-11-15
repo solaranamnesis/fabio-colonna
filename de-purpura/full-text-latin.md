@@ -1660,4 +1660,278 @@ non-Fasciata.
 
 [_Refer ad lin. penult. Tabulæ 5._]
 
+Turbinata Cochleatim, vel limbotenus præsertim ampla et Ventriosa; aut brevius, _Cochleæ_ (tam Marinæ, quàm lacustres, et aliæ), sunt vel Turbine.
+
+Compacto, et constipatiore: Volutæ Superficie externâ
+
+Inæquali, et protuberante plusminùs in
+
+Apices
+
+Muricum vel Aculeorum: e. g. _Cochlea Sessilis rubra corniculata, vel 4. processibus repandis, in imo Spiræ ambitu donata._
+
+Verrucarum, vel Tuberculorum.
+
+Productiones humiliores
+
+Rugarum: _Cochleæ Rugosæ_.
+
+Striarum: e. g. _Cochlea Marina Exotica marmorea Columnæ, de Purp. c. 10._
+
+[Figura]()
+
+Æquali vel glabrâ.
+
+Distinctiùs emisso, et velut per Sulcum spiralem profundiùs insculptum à prioribus dignoscendæ: limbo Orificii vel
+
+α\.
+
+Communi, et nihil extraordinarii habente: iterumque in Superficie externâ vel
+
+β\.
+
+Inæquales, protuberantes partim
+
+γ\.
+
+Apicibus, Aculeatis aut Verrucosis:
+
+Productione humiliore,
+
+Rugarum:
+
+Striarum: e. g. _Cochlea Terrestris Turbinata et Striata Column. c. 9._
+
+[Figura]()
+
+Æquales et glabræ.
+
+extraordinario, aut minùs in reliquis usitato, Elatiore nimirum, et velut in Pinnas vel Aures amplè laxato: qualis est _Cochlea Iänthina_, apud _Columnam de Purp. cap. 2._ descripta, utpote cujus Testa tenuis, tribus Volutis Constans, Limbo circa Umbilicum effertur admodùm, quod in aliis Cochleis non observatur.
+
+[Figura]()
+
+### Tabula 8.
+
+[_Refer ad Tab. 5. lineam ultimam._]
+
+Turbinata Ventris Oblongioris vel Elongati, sunt accedentia ad formam vel
+
+α\.
+
+Triangularem: eamque vel quasi
+
+Conicam, Apice Turbinis constituto in
+
+Summo, (vel stricto Testæ acumine) e. g. _Turo Exoticus Umbilicatus Column. de Purp. c. 3._
+
+[Figura]()
+
+Imo, vel Basi: _Conchæ multæ Persicæ_, pulcrè maculatæ, Volutæ Spirâ totâ in planam plusminùs basin collectâ.
+
+Pyramidalem plusminùs: Ex quibus omnia quidem Apicem clausum Turbinis in summo, Orificiumque apertum in imo, vel Basi habent; sed aliter contrà discrepant, ita, ut Orbes eorum convolvantur vel
+
+β\.
+
+More Communi Turbinatorum, in sinistram partem: Eaque tùm
+
+γ\.
+
+Muricata:
+
+Verrucosa: quale est _Buccinum Exoticum parvum Columnæ, de Purp. c. 5._
+
+[Figura]()
+
+Rugosa.
+
+Striata: quorsum fortè spectabit _Buccinum parvum nostras_, (h. e. Neapolitanum) _Columnæ, c. 4._ dictum.
+
+[Figura]()
+
+Contrario modo, in
+
+Dextram: e. g.
+
+_Turbines Terrestres duo, non descripti_ (anteà) monente _Columnâ de Purpurâ_,
+
+_Major, cap. 7._
+
+_Et Minor: ibidem._
+
+[Figura]()
+
+Cylindricam: vid. TAB. 9.
+
+### Tabula 9.
+
+[_Referenda ad finem præcedentis._]
+
+Turbinata Cylindrica, Turbine
+
+non prominente multùm, quin compactiore, superficiei externæ
+
+Inæqualis
+
+Rugoso-Striatæ: e. g. _Concha Natatilis_ [GREEK] _Column. de Purp. c. 18. §. 5._
+
+[Figura]()
+
+Striatæ.
+
+Æqualis, vel Glabræ.
+
+distinctiùs emisso: e. g. _Concha Natatilis_ [GREEK] _altera Column. l. d._
+
+[Figura]()
+
+### Tabula 10.
+
+[_Refer ad Tab. 3. et ad Annotat. in Columnæ de Purp. c. 11._]
+
+Testacea Plurivalvia ([GREEK]) sunt vel
+
+α\.
+
+Bivalvia (ultra quod Genus, cum Univalvium Genere, Autores vulgò non feruntur) Testasque habent vel
+
+β\.
+
+Paris Latitudinis, aut ordinariæ Commissuræ; dupliciter; Vel enim incrustantur Testâ
+
+γ\.
+
+determinatò, ac constanter in omnibus speciebus,
+
+δ\.
+
+utrâque Concavâ: Superficiei externæ vel
+
+ε\.
+
+Exasperatæ
+
+ζ\.
+
+Muricibus
+
+Simpliciter: _Bivalvia Muricata_.
+
+Mixtim: _Muricato-Striata; qualis est Concha Exotica, margine in Mucronem emissa, Column. de Purp. c. 17._
+
+[Figura]()
+
+Verrucis:
+
+Rugis:
+
+Striis: iisque vel
+
+integrè excurrentibus:
+
+rectâ deorsum:
+
+obliquè aut transversim:
+
+reticulatim.
+
+fractis, et Imbricem velut constituentibus vel
+
+Simplicem, e. g. _in Conchâ Striatâ lapideâ imbricatâ Specûs Baumannicæ_; cujus, Saxeo frustulo adhuc immersæ, est hæc figura:
+
+[Figura]()
+
+duplicem:
+
+triplicem.
+
+quadruplicem: qualis esse videtur _Concha_ [GREEK] _Column de Purp. cap. 11._
+
+[Figura]()
+
+ε\.
+
+Glabræ.
+
+δ\.
+
+concavâ unâ, planâ verò alterâ, _Pectinum Species_ quasi omnes.
+
+γ\.
+
+indeterminatò ac inconstanter, nunc cavo-cava, nunc cavo-planâ: _Ostreæ_, utpote quarum Testa superior quidem semper, aut in omnibus, Concava est; inferior non item: quin nunc concava plus minùs, nunc planè etiam Plana. Et inter plurimas Ostrearum differentias est hæc, quod aliæ sunt magnitudinis.
+
+Ordinariæ mediocris; _Ostreæ Communes_, (quæ volâ, digitis demtis) tegi possunt:
+
+extraordinariæ,
+
+triplo aut quadruplo majores: Tunderenses (Holsaticæ) quædam: dictæ _Regiæ_.
+
+enormiter magnæ: e. g. _Ostrea Indica, Gottorpium translata_, 8. pedum in ambitu, pondere 467. librarum; de quâ vid. _Olear. Camer. Got torp. Tab. 29. num. 6._
+
+β\.
+
+Imparis Latitudinis, ita, ut majoris unius vertex superemineat minori alteri, illamque quasi in se recipiat, dictæ apud _Columnā Anomiæ_, vel irregulares; _de Purp. cap. 12. 13. 14. 15._ Quarum aliæ sunt Vertice
+
+Imperforato: _Concha Anomia altera Striata_ [GREEK] _rarior, Column. c. 15._
+
+γ\.
+
+certò talis
+
+major: talis nempe:
+
+[Figura]()
+
+_minores similes_, Avellanæ nucis magnitudine: _vid. Column. de Purp. cap. 15. §. 3. seq._
+
+incerti utcunque ordinis, _Concha Lapidea Gibbosa Columnæ, Observ. Aquatil. et Terrestr. pag. 52. et cap. 12. de Purp. §. 5._ Incertum enim, ex effigie, an ad Univalvia, vel Bivalvia, (quod tamen verisimilius) pertineat.
+
+[Figura]()
+
+β\.
+
+Perforato: varia:
+
+Undosa simpliciter: _Concha Anomia 4. margine Undosa_ Columnæ de Purp. c. 14.
+
+Undoso-Rugosa: _Concha Anomia altera, vel Neptunia major imbricata, Column. c. 13._
+
+Rugoso-Striata: _Concha rarior Anomia, vertice rostrato Column. c. 12._
+
+[Figura]()
+
+β\.
+
+Striata: e. g. _Concha altera Anomia Imperati, Column. de Purp. cap. 12. §. 5._
+
+[Figura]()
+
+α\.
+
+PLURIVALVIA in specie dicta, h. e. Testis, duplici pluribus instructa: iisque vel
+
+tribus circiter aut quatuor; quò referenda, quæ veniunt nomine _Concharum Anatiferarum_:
+
+[Figura]()
+
+pluribus sæpe etiam: _Balani aut Glandes_; quarum aliæ
+
+Majores, aliæ Minores:
+
+Nudæ, aliæ Arundini, Tignis, Mytulis, aut rebus aliis innatæ.
+
+---
+
+### Sequitur, Coronidis loco,
+
+## Dictionarium Ostracologicum,
+
+#### Potissimas Animalium
+
+## Testaceorum Partes
+
+#### Exhibens, ac olim fusiûs edendum.
+
+**A\.**
+
 ...
