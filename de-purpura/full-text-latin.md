@@ -1952,7 +1952,7 @@ _Apertura_: Orificium amplum Testæ; præsertim Univalvium.
 
 _Apex_: Terminus Testæ in stricturam prominens, tàm quoad alterum Extremum, Orificio oppositum; potestque dici Acuta vel stricta Testæ Summitas: quàm quoad Latera, Muricibus exasperata, in Turbinatorum præsertim genere; dicunturque Aculei.
 
-_Appendices_: _Epiphyses, (quasi dicas, Adnascentiæ) Adnatæ aut prominulæ partes, tam duræ, ad Testam, quàm molles, ad Carnem Animalculi pertinentes. _Column._ de Purp. cap. 2. §. 2: _Appendices habet_ (Cochlea Iänthina) _binas, quarum altera exterior major_, etc. Icon relata est sub titulum _Glandis_.
+_Appendices_: Epiphyses, (quasi dicas, Adnascentiæ) Adnatæ aut prominulæ partes, tam duræ, ad Testam, quàm molles, ad Carnem Animalculi pertinentes. _Column._ de Purp. cap. 2. §. 2: _Appendices habet_ (Cochlea Iänthina) _binas, quarum altera exterior major_, etc. Icon relata est sub titulum _Glandis_.
 
 _Armatura_: Crusta tenuis metallica, fulgore Auri, Orichalci, aut Ferri, in convexo Testarum quarundam (lapidearum, ut videntur, conspicua, superinducta ipsis ex congelamine Halituum subterraneorum, resolutæ cujuspiam Rei metallicæ feracium.
 
