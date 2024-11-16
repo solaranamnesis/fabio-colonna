@@ -1968,4 +1968,20 @@ _Byssum, aut Byssus_: Textura ex Lino vel Serico subtilis aliàs; eademque Purpu
 
 **C\.**
 
+_Cacumen_: Constricta in angustum Testæ Turbinatæ Summitas. _Column._ de Purp. cap. 3. §. 1: _Differt_ (Turbo Exoticus) _quod obtusus sit Cacumine, circa medium tenuior; deinde æneæ Nolœ effigie in latitudinem se diffundens_.
+
+_Callus_: Duriuscula portio Carnis Testaceorum.
+
+_Canales, Canaliculi_: Longiusculi, stricti, et concavi Processus Testarum, _Tubuli_ aliàs; de quibus suo loco vide.
+
+_Caput_: 1. Anterior pars Carnosæ Cochlearum, Turbinatorumque aliorum Substantiæ, quâ lambendo corpora alia, in eorum superficie se firmant, loco per eandem moventur, et post leves attactus extraneos, nunc retrahunt se intra Testam, nunc iterum se proserunt. 2. Summitas angusta testæ. _Column._ de Purp. cap. 15. §. 1: _Alterâ parte, quâ Valvæ it caput prominet_.
+
+_Cardines_: Concavo-convexæ Bivalvium Portiones, in parte crassiore Concharum suarum, quâ conjunguntur, et mutuò sibi inarticulantur, more Cardinum, in Januâ Ædificii. Conferatur _Ginglymus. Column._ de Purp. cap. 11. §. 1: _Pluribus hæc Testa_ (Conchæ [GREEK]) _notis ab aliis Conchis differt, propriamque habet notam, innumeram Seriem exiguorum Cardinum, rectâ per obliquum lineâ, et admodùm longâ, Testæ connexum, efficientium_.
+
+_Caro_: In genere, omnis mollior Substantia Testacei Animalis, quæ testæ includitur; in specie verò fibroso-fungosa, succi salsuginei, Ventremque solventis plena, distincta à partibus itidem mollibus quidem, sed Venosis aut Nerveis, aut etiam excrementitii quid exhibentibus. Hæc Caro (specialiter sumta) sicut Colore variat; ita _Flavicans et maculata Purpuræ_ est, teste _Columnâ_ de Purp. cap. 1. §. 33.
+
+_Cervix_: In Homine, Colli pars posterior. In Turbinatis, Dorsum veluti Carnosæ partis, extra Testam prominentis proximè post Cornua. _Column._ de Purp. cap. 4. §. 1: _Cervix (Buccino parvo) _crassa est, lata; in cujus lateribus cornicula_. Imò in Testâ Bivalvium idem, quod productio ejus longiuscula, circa locum commissuræ vel cardinis. Ita enim _Column._ c. 12. §. 3. de Conchâ rariore Anomiâ: _Collum, Cervicemque totam, quæ longior est, atque acutior, prominetque, supra cervicem alterius diffundit, ut infra illius Collum, altera Cervix connectatur_. Icon ex _Autore_ sub Vocem, _Vertex_, inferiùs relata est. _Idem_, in fine Cap. 14. _Omnes_ (Conchæ Anomiæ) _cervicem habent perforatam_.
+
+_Circuitio_: vid. _Voluta_.
+
 ...
