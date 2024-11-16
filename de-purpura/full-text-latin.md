@@ -1984,4 +1984,36 @@ _Cervix_: In Homine, Colli pars posterior. In Turbinatis, Dorsum veluti Carnosæ
 
 _Circuitio_: vid. _Voluta_.
 
+_Cirri_: In Homine, Capilli inordinatè aut negligenter contorti. In Nautilo, Eminentiæ longæ carnosæ, quibus expansis, Membranaque interpositâ succinctis, inter navigandum sive pro Velo, sive pro Gubernaculo utitur. Confer _Brachia_.
+
+_Clathrum_: Opus cancellatum naturæ, quo Lineæ Testarum reticulatim componuntur. _Column._ de Purp. c. 10. §. 4. _Quæ_ (Testa Cochleæ Marinæ Exoticæ) _Clathrata Lineis erat per rectum et obliquum_.
+
+_Clavi_: Muricum, vel Concharum aculeatarum cuspides, longitudine dispares. _Column._ de Purp. cap. 1. §. 27: _Non omnes illius generis Testæ, longioribus Clavis horridæ observantur; sed brevibus admodùm Tuberculis_. Inde _Claviculati Orbes_ Eidem (ibid. §. 31.) id est, Aculeis armati.
+
+_Cochlea_: in modum Partis (durioris, à carnibus distinctæ) sumta, est Testa Turbinata, ampli brevisque Ventris, Orificio patentiore, Turbine in seipsum reducto potiùs, quàm longiùs emisso. _Column._ de Purp. cap. 10. §. 1: _In anteriore et rotundâ parte Cochleæ, observantur denticuli plures_ (in Cochleâ Marinâ Exoticâ Marmoreâ.)
+
+_Collum_: in Homine Pars, inter Caput ejus, Truncumque sita. Pro quo Capite dum anterior carnosa Testaceorum portio sumitur, reliqua proximè huic succedens, etiamsi et ipsa Ossibus, Tendinibus, Musculis, et Vasis amplæ Cavitatis destituta sit; ob analogiam tamen Connexionis, Collum appellatur. In Testâ item, longiuscula productio Commissuræ. _Column._ de Purp. c. 12. p. 3: _Altera Conchæ_ (Anomiæ) _pars oblongior est, Collum super cervicem alterius diffundit_.
+
+_Columella_: tanquam parva Columna; Firmamentum medium, et velut Axis Testæ turbinatæ, circa quem Orbes, vel Spiræ Circuitus convolvuntur, respondens in Architecturâ Scapo longo Scalæ Cochlearis, cui gradus singuli, spirali ordine infixi hærent. _Column._ de purp. cap. 10. §. 1: _Hiatus_ (Cochleæ Marinæ Exoticæ Marmoreæ) _non rotundus; nec à Columellâ, ut in aliis, definitur_; et cap. 18. fin: _Lunatæ sunt in extremo Columellæ ad Lingvæ usum_.
+
+_Concha_: in modum Partis sumta, idem quod durior Testacei Animalis Pars; nimirum Testa. _Column._ de Purp. cap. 1. §. 4. ex Plinio: _Vescuntur Conchyliorum carnes, quorum Conchas complexu Crinium frangunt_. Et §. 14. ex Eodem: _Conchyliorum firmissimas Conchas_.
+
+_Cor_: Purpuræ Cor idem cum Hepate aut Papavere ejus esse statuitur, ut ex _Annotat._ 12. §. 18. patet.
+
+_Corniculum_: tanquam parvum Cornu; Processus nempe in Turbinatis, (præsertim de Cochlearum genere) geminus, vel Prominentia carnosa, mollis, teres, antrorsùm sita, retractilis iterum ad levem contactum, dum obvium quidvis facilè, tanquam digitis palpant; Oculoque, ut videtur, supernè aut in medio insignita. _Column._ de Purp. cap. 1. §. 33: _Hujus quidem_ (Purpuræ Cornicula) _in acutum desinunt; et Oculi non in summo, ut in Terrestribus_ (Cochleis) _sed supra medium Corniculorum observantur, ubi Cornicula veluti resecta, per longum tenuiora efficiuntur_. Et cap. 4. §. 1: _In cujus_ (Cervicis, Buccini parvi) _lateribus, Cornicula, ut in Purpurâ diximus, in medio veluti resecta, in quibus Oculi etc._ Vel etiam, nisi planè Processus hos retrahant Purpuræ, occasione datâ sibi cujuspiam offendiculi; spontè interdum eosdem, ob alium finem, leniter incurvant: ad Oculos, in medio sitos, protegendos videlicet. Ita enim _Autor_ noster, de Purp. c. 1. §. 33: _Oculos verò aliquando tueri Corniculis, supra illos incurvatis, ut in picturâ notatur, observavimus_.
+
+[Figura]()
+
+_Cornua_: Cochlearum generi ferè propria, ut modò de Corniculis est dictum. _Doctissimus Schwammerdammius_ videtur statuere, Cochleas terrestres minores (quales in Holsatiâ etiam perfrequentes sunt) cornuum istorum commissu, eoire: et lacteum Liquorem ex eorundem cuspidibus sponte exsudare Cochleas Vinearum edules, tempore Veris, observavit aliquando, mihique retulit _Dn. D. Sebaldus Scholtz_, Medicus Vratislaviensis.
+
+_Cortex_: Crusta limosa indurata, Testis externè innata, diversi in diversis Testaceis Coloris; quem genuinum eorum non esse, sed sub eo latere alium, plerumque splendoris opalini, jam supra dixi, (_Annotat._ 9. §. 7.) _Column._ de Purp. c. 1. §. 27: _Cortice rugosiore, colore fusco aut cinericeo, velut Limo obducto_. Et cap. 3. §. 2: _Cortex superior_ (Turbinis Exotici) _rugosus, candicans, ad pallidum vergens, maculis variegatus_. etc. Confer, _Crusta_.
+
+_Crinis_: in Homine quid notet, notum. In Historiâ Ostracologicâ verò notantur hac voce cumprimis duo: 1. Fibræ muscosæ et purpurascentes, Ostreis adnatæ, illaque, tanquam Lanugo quæpiam, ambientes. 2. Fibræ nervosæ Polyporum. _Column._ de Purp. c. 1. §. 4. ex Plinio: _Vescuntur Conchyliorum carnes, quorum Conchas complexu Crinium frangunt_.
+
+_Crusta_: duo significat hic loci; 1. _Corticem_ paulò-ante-dictum, seu limosas Maris Sordes concretas in Testarum superficie, firmiterque adeò iisdem insidentes, ut non tàm limâ ubivis aufferri possint, quàm mersione in liquoribus acidis et corrosivis, blandovè horum illitu opus sit, siquidem nativus politusque Testæ color, subtus absconditus, effulgere debeat. 2. _Opercula_, Turbinatorum orificiis transversim innata, sub quibus Carnes eorum per hyemem delitescunt. Vide _Operculum_. 3. _Corticem Semilapidem_ in Conchâ Lapideâ, _Column._ de Purp. c. 16. §. 3: qui ait: _Tota terreâ Crusta, et veluti sordida, Colore Ochræ foris est_. etc.
+
+_Cuticula_: Quo respectu _Perlis_ vel _Margaritis_ tribuatur in ipsarum genesi, pulcer et notatu dignus locus est _Anselmi Boetii_ lib. 2. de Lapid. et Gemm. cap. 37. (pag. 167. 168:) ubi hæc scribit: _Ex Conchis Margaritas exemi complures, ac deprehendi, in Animalis corpore nasci ex eo Humore, ex quo Testa Conchæ excrescit. Humor enim ille, Testæ adhærens, quia ex terreo viscoso, ac exactè in minima (ab Aqueo Animalis humore) resoluto constat, siccescit paulatim, et induratur, ac certo tantùm tempore, non semper, ab Animali pro Testæ fabricâ eructatur. Hinc sit, Conchas multiplici constare Cute, dum posterior exsiccatur, priusquam nova adjiciatur. Dum humor ille ab Animali morboso eructari et expelli non potest, ac in Corpore hæret, detineturque, si ibidem exsiccetur, rudimentum atque initium sit Margaritæ; quæ adjecto sæpius novo humore, eoque exsiccato, cute subinde novâ augetur, ac in Unionem abit, non secus, quàm in Fellis Vesiculâ, et Urinæ Vesicâ lapides generantur. Quorum materia, quæ per Urinam expellitur, dum in Corpore Vesicæ detinetur, ibidem exsiccatur, et in lapidem abit. Hoc modo Bezoar in Capris Indicis, multis Cuticulis generatur._
+
+**D\.**
+
 ...
