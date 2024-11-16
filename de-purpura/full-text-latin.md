@@ -2016,4 +2016,28 @@ _Cuticula_: Quo respectu _Perlis_ vel _Margaritis_ tribuatur in ipsarum genesi, 
 
 **D\.**
 
+_Dentes Denticuli_: 1. Spinosæ Testarum eminentiæ; breves præsertim, et æquali longavè serie, in Ambitu illarum positæ. _Column._ de Purp: cap. 15. §. 1: _Et senis striis, totidemque strigibus in singulis Lobis, quibus margines denticulatæ fiunt, infecta_ (Concha Anomia, [GREEK] dicta.) Icon reducta habetur ad Vocem, _Striges_. 2. Eminentiæ intimiores quædam, acutæ, rugosæ, humiles, ubi scil. Testa aliqua (Turbinata præsertim) ex ampliore Ventre strictior redditur, et in Rostrum acutius angustatur, ut inde quasi Plicæ quædam breves resultent, acutangulæ, quæ _Dentes_ similitudine quadam appellantur. Vel breviùs: Crenæ acutiùs prominentes in Aperturis Testarum quarundam; ut videmus in Conchâ Venereâ; nec non in Cochleâ Marinâ Exoticâ Marmoreâ apud _Columnam_ de Purp. c. 10. §. 1 dum ait: _In anteriore et rotundâ parte Cochleæ, parum infra extremum, observantur Denticuli plures elati_. Et hanc Iconem addit:
+
+[Figura]()
+
+_Dorsum_: 1. Pars Testæ maximè eminens in Convexo ejus; tam Univalvium, quàm Bivalvium. 2. Pars superior carnis, ad Caput Purpuræ, ac Turbinatorum aliorum pertinens, inter Cornicula ac Testam.
+
+**E\.**
+
+_Echinus, Echini_: Superficies Testæ, Aculeis pluribus exasperata. Vel et Aculei ipsi.
+
+_Excrementum_: Humor crassus, Fœculentus, qui post Alimenti digestionem, ut inutile quid, per Meatum peculiarem ejicitur.
+
+_Excretorius Meatus_: Pars concava intra Carnem, quâ Excrementum egeritur.
+
+_Exochæ_: Striæ Eminentes. [GREEK], Eminentia, Acies. Unde vulgatum illud, [GREEK], per excellentiam: inque Architectonicis Pars ædificii quædam, quæ protuberat, Exocha dicitur.
+
+**F\.**
+
+_Fasciæ_: Eminentiores, aut etiam depressiores partes Testæ, disparis latitudinis, imò vel Maculæ saltem etiam, obliquo longo ductu illam ambientes vel integrè, vel interruptim. _Column._ de Purp. c. 1. §. 27: _Et Fasciis distincta oblique Purpurascentibus_.
+
+_Fauces_: 1. Ingressus in concavam partem Testæ, vel Orificium ejus, præsertim in Turbinatis, per quod Carnea Animalis Moles se foras proserit. 2. Foramen rotundum Limbi carnei, quo alimentum de Scopulis suctum, in Ventriculum demittitur; de quo vide suprà, _Annotat._ 12. §. 7.
+
+_Fibræ_: Stamina minuta, competentia Testis tum per se, tum per se, accidens magis, quod foris saltem adnascantur. _Per se_; intelliguntur Testarum Stamina radicalia, ex quibus Testulæ, et ex his Testa demùm contexitur, ad mentem _Stenonis_, suprà, (Annotat. 10. §. 7. et seq.) expositam. _Per accidens_; Villi, seu germina muscosa, Crinis aut Lanuginis instar, Ostreis obnascentia; quæ proin optimæ censentur: ut et Venetiis in Chamis plurimis observavi, multas earum, eodem Musco villoso cohærere, tanquam junctim hac ratione nidificassent. Inque Pinnis præcipuè Stamina talismodi progerminant; quæ peculiariter _Byssus_ appellantur. Vide etiam supra, sub literâ B.
+
 ...
