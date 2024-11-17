@@ -96,7 +96,7 @@
 
 ## [Dictionarium Ostracologicum](#dictionarium-ostracologicum-1)
 
-### [De Glossopetris Dissertatio]()
+### [De Glossopetris Dissertatio](#de-glossopetris-dissertatio-1)
 
 ---
 
