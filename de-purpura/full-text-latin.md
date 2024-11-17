@@ -96,7 +96,7 @@
 
 ## [Dictionarium Ostracologicum](#dictionarium-ostracologicum-1)
 
-...
+### [De Glossopetris Dissertatio]()
 
 ---
 
@@ -2140,7 +2140,7 @@ _Lingua_: in Homine, Caro media Faucium, articulandæ vocis, gustûsque obtinend
 
 FABII COLUMNÆ LYNCEI
 
-## _De Glossopetris Dissertatio:_
+### _De Glossopetris Dissertatio:_
 
 _Quâ ostenditur, Melitenses Linguas Serpentinas, sive Glossopetras dictas, non esse Lapideas, ut quidam asserunt; sed osse
 as, et Carchariæ, Lamiæ, sive Canicularum, et similium dentes, Maris æstu olim Terrâ tenui et lutosâ obrutos. Plurima interim de Figuris Lapidum, Ossium Geniturâ, Gigantum Bustis, ac Ossibus, Maris et Terræ Mutationibus, Testis Saxo inclusis, adducuntur ac exponuntur. Lapideorum Fungorum natura declaratur, et nova Species proponitur._
