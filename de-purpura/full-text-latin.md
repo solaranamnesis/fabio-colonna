@@ -2040,4 +2040,113 @@ _Fauces_: 1. Ingressus in concavam partem Testæ, vel Orificium ejus, præsertim
 
 _Fibræ_: Stamina minuta, competentia Testis tum per se, tum per se, accidens magis, quod foris saltem adnascantur. _Per se_; intelliguntur Testarum Stamina radicalia, ex quibus Testulæ, et ex his Testa demùm contexitur, ad mentem _Stenonis_, suprà, (Annotat. 10. §. 7. et seq.) expositam. _Per accidens_; Villi, seu germina muscosa, Crinis aut Lanuginis instar, Ostreis obnascentia; quæ proin optimæ censentur: ut et Venetiis in Chamis plurimis observavi, multas earum, eodem Musco villoso cohærere, tanquam junctim hac ratione nidificassent. Inque Pinnis præcipuè Stamina talismodi progerminant; quæ peculiariter _Byssus_ appellantur. Vide etiam supra, sub literâ B.
 
+_Fimbria_: Pars Testaceorum, oblongè-turgidula aut eminens utcunque (sicut Fimbria in Veste) ultra superficiem reliquam seu Testæ, seu Carnis. _Testæ_ quidem, e. g. in Conchis Venereis plusculis: _Carnis_ verò, e. g. in genere Lepadum, quæ Carnosam emittunt, extra Testæ suæ ambitum, Corporis sui Fimbriam, eamque expandunt, cum Saxis hærent; solutæ verò eandem iterum retrahunt.
+
+_Fistulæ_: Tubuli. Fistulosæ, h. e. eminentes, ac intùs cavæ Striæ, e. g. in Conchâ Exoticâ _Columnæ_ de Purp. cap. 17.
+
+_Flos_ Purpuræ: vide _Sanguis_.
+
+_Foramina_: Lacunæ, inania spacia; quæ propriè non videntur, quoniam Privationem solam conspicui Corporis in Spacio aliquo, denotant, sicut Tenebræ non videntur, nec Silentium auditur, nec Insipida gustantur. Ad exprimendam tamen Orarum, Marginum, aut Limborum amplitudinem, quibus Lacuna talismodi interefl, Foramen ipsum quoque, vel Vacuitas, consuetudine aut opinione quadam videri existimatur. Et sic Foraminibus pertusæ, magnis, parvis, pluribus, paucis, aut uno, rotundis, angularibus, simplici, aut multiplici serie, vel inordinatè etiam, positis, superficialibus, aut Testam penetrantibus, conspicuæ sunt Testæ multæ: partim _in Vertice_, ut Lepas Sylvestris apud _Column._ de Purp. cap. 12. §. 5. Conchæ Anomiæ Vertice Rostrato, _Ejusdem_, cap. 12: partim in _Strigibus_, vel Striis eminentibus fistulosis, e. g. Conchæ Exoticæ, quam cap. 17. describit: partim _in Cardine_, ut in eâdem apparet: partim in _Ambitu intriore_, ut in Aure Marinà, de quâ hanc in rem vide _Col._ cap. 12. §. 5.
+
+**G\.**
+
+_Ginglymus_: (Cardo veluti Januæ,) Modus Conjunctionis duarum Testarum, ut invicem se subintrent. Inque Osteologiam Medicam præcipuè terminus hic transsumtus est. De Conchâ [GREEK] vide _Column._ de Purp. cap. 2.
+
+_Glans_: Extrema pars Carnis, in longum emissæ, instar Penis, rimamque habens in medio, ut videtur in Cochleâ Iänthinâ _Columnæ_ de Purp. cap. 2. §. 2. cujus hæc est Icon:
+
+[Figura]()
+
+_Gomphosis_: à voc [GREEK], Clavus vel Cuneus. Incuneatio itaque, vel modus Conjunctionis Bivalvium, sicut Dentes Maxillæ humanæ, vel Clavi asseribus aut Parieti infiguntur. _Wormius_ lib. 3. Mus. cap. 7. pag. 254. _In Chamâ Peloride, ambæ Conchæ per validam Gomphosin in medio nectuntur._
+
+**H\.**
+
+_Helices_: Circumvolutiones, Spiræ, Vertigines. Confer, _Volutæ_.
+
+_Hepar_: De hepate Purpuræ, vid. _Annotat._ 12. §. 18.
+
+_Hiatus_: Apertura Limborum mutuò sibi occurrenrium, in Bivalvibus. Item Orificium exterius in Cochleis, ac Univalvibus aliis. _Column._ de Purp. cap. 10. §. 1: _Variat hac_ (Cochlea Marina Exotica marmorea) _à maritimis nostratibus, crassitie Testæ, atque Hiatu, qui non rotundus, etc._ Et cap. 18. §. 1. de Conchâ Natatili Neritode minimâ: _Colore ex pullo candicans, amplo admodum Hiatu, ut intra se Turbinem colligat._
+
+_Humor_: i. e. Sanguis Purpuræ. _Column._ de Purp. cap. 1. §. 23. ex Isidoro: _Ex quibus Purpura tingitur, et inde Ostrum appellatum. Quod appellatum, quod hæc Tinctura ex Testæ Humore elicitur._
+
+**I\.**
+
+_Imbrices_: in Architecturâ propriè Tegulæ cavæ Tectorum, sic dictæ, quod Imbrem exceptum, desuper transmittant; vel integræ series coordinatæ Tegularum ejusmodi, aut Tectum ipsum. In Ostracologicis, Striæ eminentes aut Rugæ, in suo decursu fractæ, et conjunctim incedentes hoc pacto per Testæ Obliquum, Imbricem velut constituentes, e. g. in Conchâ [GREEK] _Columnæ_ de Purp. c. 11. §. 3: cujus Testacei Concha _Obliquis densioribus Rugis exasperata_ (est.) _ut Imbricata etiam dici possit_; cujus Icon hæc habetur:
+
+[Figura]()
+
+In Conchâ item Neptuniâ majore _Ejusdem_, cap. 13. quam Imbricatam peculiariter nominat: in Pectunculis: et in Conchâ Striatâ lapideâ Specûs Baumannicæ, quam in Tabulâ 10. Ostracologicâ adduximus; hanc nimirum:
+
+[Figura]()
+
+_Intestinum_: Canalis strictus, mollis, oblongus, pro transitu Excrementi, ex Alimentis residui. _Simplex in Turbinatis continuo ductu fertur àgulâ ac Ventre, in sinu verticoso Testæ. Inde reciprocans, sursum adscendit ad Carnosas partes, et circa Caput terminatur, quâ emittitur Excrementum_: sunt verba _Jonstoni_ de Aqualit. Exsangu. Tit. 1. p. 38. b.
+
+**L\.**
+
+_Labra_: Oræ extremæ, aut Limbi Testæ. _Worm._ lib. 3. Mus. c. 7. p. 254. de Chamis Piperatis: _Labra non habent crenata, sed lævia; magisque in rotunditatis ambitum circinantur Tellinis._
+
+_Lac_: Liquor Testaceorum multiplicativus, aut Semen, formâ Spumei Spermatis. _Worm._ ibid.
+
+_Lacryma_: i. e. Sanguis. _Column._ de Purp. c. 1. §. 23. ex Isidoro: _Quod circumcisa ferro Lacrymas coloris purpurei emittat, ex quibus Purpura tingitur._
+
+_Lanugo_: Fibræ collectæ et crispatæ tenues plurimæ, in aliquâ (convexâ) Testarum parte. Confer, _Villi_.
+
+_Lapillus_: Calculus. Margaritiforme Coagulum durum, foris splendens: _Phile_ de Propr. Animal. cap. 88:
+
+_Pinnæ quod humidum effluit de Viscere,_  
+_Qui fulgur æquet, sit Lapillus lucidus,_  
+_Sed Unionis induit tandem jubar._
+
+_Lentor_: Viscidus salivalis humor. _Column._ de Purp. c. 1. §. 20. ex Plinio: _Mutuoque attritu Lentorem cujusdam Ceræ salivant simili modo, ac Murices._
+
+_Limbus_: Quævis Ora, vel Determinatio strictior, ac longiùs protracta Substantiæ Testaceorum tàm duræ, quàm mollioris. Ex quibus quod attinet ad
+
+_Duriorem_, ac verè Testaceam; in _Limbis Testæ_ spectatur eorum tùm
+
+α\.
+
+_Magnitudo_, quotannis incrementa sumens. Quod intelligendum esse, per Longitudinem Volutæ (à summo apice ductam, ad Orificium) non verò in Latitudinem, vel quoad transversales ductus Volutæ aut Spiræ, et exin mensuram Ætatis quodammodo capi posse, patet ex his verbis _Columnæ_ de Purp. cap. 1. §. 29: _Nos autem, quot habent distinctiones in Volutis, quæ ab antiquioribus Oris, sive Canalis ad Linguæ usum Extuberantiis, ortum ducunt per longum Volutarum, tot annos habere, certiorem notam esse putamus._
+
+_Situs_,
+
+β\.
+
+_ad Umbilico incipiens_, Animalculoque prorepenti conveniens, juxta verba hæc _Columnæ_ (Præfat. ad Lect.) _Commune habent Turbinata omnia, quod Limbo sint prædita quodammodo simili, quo gradiuntur, sive repunt._ Cujusmodi _Limbus_ in aliquibus Testaceis est.
+
+_Elatior_, ut in Cochleâ Iänthinâ: de quâ _Column._ de Purp. cap. 2. §. 4: _Limbo circa Umbilicum elato admodùm, quod nec im aliis Cochleis observatur_.
+
+_Depressior_, castigatiorque; in reliquis ferè omnibus.
+
+_Externè ad Superficiem Volutæ spectans_, et quasi Fasciola, illam ambiens. Ita enim _Autor_ noster c. 3. §. 3: _Quinque Voluminibus_ (Turbo Exoticus) _definitur, inter quæ veluti Limbus apparet_. Iconem confer huc, relatam sub voce _Umbilicus_.
+
+α\.
+
+_Molliorem_, vel Substantiæ carnosæ; per eum intelligitur Ambitus anterioris partis Carnis, quam Turbinata inter rependum expandunt vel extendunt, dein contrahunt, atque iterum in Latitudinem producunt. Unde _Column._ de suâ Purpurâ, cap. 1. §. 34: _Corpus protrahens, iterumque Limbum producens, quem latum habet._ Intellige, Antrorsùm. Retrorsum enim moles carnea, quam Turbinata é Testis suis protrahunt, semper aut plerumque strictior est; et quidem obtusa in fine. In aliquibus tamen forsan etiam bisulca, ut in Buccino parvo; De quo sic ait _Columna_ de Purp. cap. 4. §. 1. _Limbo, ut Cochleæ, graditur lato, in extremâ posteriore parte bisulco, veluti Insectum, caudato._ Et Figuram hanc adducit:
+
+[Figura]()
+
+_Lineæ_: 1. i. e. Maculæ strictiores, longæ, aut Inscriptiones virgatæ, (in Testarum convexo præcipuè) longiùs productæ; rectæ, aut undosæ; _Column._ de Purp. cap. 11. §. 3. _Lineis undosis sculpta_; elatæ, aut depressiores;
+
+tam Simplices
+
+ejusdem generis; Candicantes, flavæ, rubræ, etc. diversi generis; variegatæ. _Column._ cap. 4. §. 2: _Reliqum Testæ_, (Buccini parvi) _variegatum, undosis candicantibus parum Lineis._
+
+quàm mixtæ; _Clathratæ_ per rectum et obliquum, ut loquitur _Idem_: cap. 10. §. 4.
+
+2\. i. e. Ipsæmet Striæ, utcunque prominulæ, Testamque exasperantes: _Idem_ cap. 5. §. 1: (Buccinum Exoticum parvum) _Tuberculis nigro-flaventibus, et Lineis elatis candida Testa exornatur_. Icon est talis:
+
+[Figura]()
+
+_Lingua_: in Homine, Caro media Faucium, articulandæ vocis, gustûsque obtinendi organum; Geographis, Sinus, vel angustior Maris pars, oblongè inter Continentis flexus concavos angustiores excurrens; Mechanicis, pars Vectis anterior, obtusè aut subrotundè formata. In hâc Ostracologiæ parte autem, portio Carnis longa Stricta, intus concava vel canaliculata, ex sede faucium emergens, Aquæ hauriendæ et reddendæ inserviens, tam in _Purpuris_, quàm _Buccini_ specie. De _Purpurâ_ enim hæc habet _Autor_ noster, cap. 1. §. 4. et 25. ex Plinio: _Lingua Purpuræ, digitali longitudine, quâ pascitur, perforando reliqua Conchylia._ Quæ Perforatio quomodo capienda sit, ne in Regulas Mechanicæ impingamus, perspicuè jam supra (_Annotat. 12. §. 11. seq._) dictum est. Et de hydraulico potiùs Linguæ usu, vide _Columnam_ cap. 1. §. 34. De _Buccino Parvo_ autem, cujus Iconem etiam (cap. 4. §. 1.) dat, hîc loci paulò antè allatam, sub Voce _Limbi_, hunc in modum scribit: _Linguam habet, longam admodùm, canaliculatam, ex quâ Aquam haustam exspuit: et cum graditur, elatam gerit, et incurvam ex adverso_. Alia demum etiam est Vocis _Linguæ_ acceptio, ut pro Fossili quodam, Insulæ Maltæ ferè proprio, sumatur, quod _Glossopetra_, vel _Petroglossum_, Græcè effertur; et quia _S. Paulus_ Serpentem ibi in Ignem projecit, hodièque nulli Serpentes in Insulâ istâ versari perhibentur, quod _Divus Apostolus_ facto illo indignabundus maledixerit Serpentibus reliquis omnibus, illosque fulmine Banni procul inde fugaverit; vulgaris opinio, acutos illos, glabros, bilateres lapillos, diversæ magnitudinis, ex Terrâ alba, quæ in Trochiscos formatur, natos, latioreque suâ Basi plerumque eidem infixos, LINGUAS SERPENTUM nominat; utut Viperarum Linguis tam similes sint, quàm Ovum Anseris, Cornubus Venatorum. Lapideas tamen, et alterius naturæ esse, quam osseæ, _Columna noster_ negat, in peculiari _de Glossopetris Dissertatione_. Quam, cum Caput ultimū esse voluerit Tractatûs sui de Purpurâ, tanquam Appendicem laudati Opusculi; et verò _Glossopetræ_, sive Petrefactum quid sint, sive saltem Osseum, ad Rictum dentatum Carchariæ Canis spectans, placuit Doctrinam eam, tanquam cum Purpurâ et Testaceis reliquis parum connexam, planè divellere, et sub præsentem, _de Linguâ_, Lexici hujus portiunculam, referre. Sicque suam _Autor_ Dissertationem inscribit:
+
+FABII COLUMNÆ LYNCEI
+
+## _De Glossopetris Dissertatio:_
+
+_Quâ ostenditur, Melitenses Linguas Serpentinas, sive Glossopetras dictas, non esse Lapideas, ut quidam asserunt; sed osse
+as, et Carchariæ, Lamiæ, sive Canicularum, et similium dentes, Maris æstu olim Terrâ tenui et lutosâ obrutos. Plurima interim de Figuris Lapidum, Ossium Geniturâ, Gigantum Bustis, ac Ossibus, Maris et Terræ Mutationibus, Testis Saxo inclusis, adducuntur ac exponuntur. Lapideorum Fungorum natura declaratur, et nova Species proponitur._
+
+Hic verò, qui nunc sequitur, est ipse Contextus Opusculi, de verbo ad verbum; cui _Columna_ Figuras has præfigit:
+
+[Figura]()
+
 ...
