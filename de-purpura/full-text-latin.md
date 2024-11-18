@@ -2192,6 +2192,80 @@ _Membrana_, Cirris Nautili interposita: vide sub Voce _Cirri_. Pellicula videlic
 
 _Mesenterium_: Corpus membraneum, in Hominis Ventre, quo Intestina colligantur, Venis, Nervis, Arteriis, ac aliis Vasis, Glandulisque intertextum. Purpuris etiam tale quid tribui, vide in _Annotat._ 12. §. 17.
 
-_Micæ_: Puncta aut Maculæ coloratæ in Testâ aut carne.
+_Micæ_: Puncta aut Maculæ coloratæ in Testâ aut carne. _Column._ de Purp. cap. 4. §. 1: _Corpus variegatum obscuris Micis purpureis, et infernè parum ad cœruleum tendens_, (in Buccino parvo.)
+
+_Mucro, Mucrones_: Acuti processus Testarum tam univalvium, quàm ex bivalvibus, Conchæ Exoticæ; de quâ sic _Columna_, d. Purp. c. 17. §. 3: _In plures desinit Mucrones, totaque Margo mucronata. Quare Concha [GREEK] apellari potest_.
+
+_Murices_: de hoc nomine abundè actum vide _Annotat._ 7.
+
+**N\.**
+
+_Nervus_: Accipitur in Ostracologiâ, sat propriè quidem, pro Re Tubulatâ, molli, tereti, firmâ, candicante, Spiritibus motoriis irradiatâ, in Mole carneâ viventis Animalis: sed juxta modum Existendi intercedit quædam diversitas. Nam tale quid exstare solet, vel
+
+Solitariè; habetque se, ut funiculus nerveus albicans, ex Anatome hominis aliàs sat notus; immediatum Motûs localis organum.
+
+Sociatim; habetque se, ut breve quoddam Corpus tendinosum aut ligamentosum, circa cardines Bivalvium præsertim conspicuum, album (interdum et coloris alterius) durum, latum, crassum, ac tenax. _Worm._ lib. 3. Mus. c. 7. p. 254. _Cardinibus non junguntur farctis invicem_ (Chamæ Piperatæ, Biveroni Italicè) _sed Nervo, ut Ostrea. Item Mytuli, Pectines_, etc. Aptiùsque _Nerveum Vinculum_ dicitur.
+
+_Nodus_: videtur idem esse, quod Ginglymus, vel Inarticulatio. _Column._ d. Purp. cap. 11. §. 2: _Ad differentiam earum (Concharum) _quæ brevi Nodo ligantur_. Idem cap. 15. §. 4. _Hæ omnes Anomiæ brevi Nodo ligantur, ob Cervicis angustiam_.
+
+_Notæ_: Maculæ. _Col._ de Purp. cap. 4. §. 2: _Circa Volutarum imum Castaneis Notis distincta_. Habenturque Muricum species Maculis virgatis, tanquam _Notis Musicalibus inscriptæ_; quales Clar. _Olearius_ (Tab. 30. Camer. Gott. ad num. 4. 5. 6. 7. pag. 66.) _Conchas Musicales_ nominat; ego verò in Testaceorum meorum Catalogo privatim appello eâ in parte, ubi de _Turbinatis muricatis_ agitur, _Conchas in superno spiræ ambitu Muricatas_, Muricum _serie simplici; lividas, Virgulis multis ruffis disruptis, et velut Lineis Musicalibus inscriptas, Marmoreas quibusdam dictas_: aut breviùs; _Murices Marmoreos lineis velut Musicalibus inscriptos; qualem etiam depingit Beslerus in_ Gazophylacio, Tab. 23.
+
+**O\.**
+
+_Oculus_: Propriè quid sit, vel citra Anatomen notum est: hujusque generis Partibus Testacea aliqua destitui, _Aristoteles_, ni fallor, putavit, 1. Hist. An. c. 9. Sed aliquibus utique emissitii sunt, et in corniculis siti; ast diversimodè. Eorum enim apici, in Limacibus, aut Cochleis terrestribus, circa medium verò in Purpuris siti sunt: _Column._ de Purp. cap. 1. §. 33: _Oculi non in summo, ut in Terrestribus, sed supra medium Corniculorum observantur, ubi Cornicula veluti resecta, per longum tenuiora efficiuntur_. Adde, quæ habet cap. 4. §. 1.
+
+_Onyx_: Operculum Conchylii palustris turbinati Indici, juxta _Dioscoridem_; à lævore Unguis sic dictum. Vid. _Column._ de Purp. cap. 1. §. 15. 17. et confer tit: _Operculum_.
+
+_Operculum_: in genere, Res, quâ aliquid tegitur; in specie verò, durus et planus (interdum utcunque incurvatus) Orbiculus, vel Crustaceum Congelamen (confer etiam Vocem, _Crusta_) ex Salivali viscositate et sordibus Terræ obnatum transversim, Orificio Testarum Univalvium, et occludens hoc pacto Testam, mollioresque Animalculi partes intùs defendens ab hybernis injuriis. _Nota est, Rugosa superficies orbiculatim_, ut ait _Column._ de Purp. cap. 1. §. 33. Præstaret, si pro voce, _Orbiculatim_, posuisset _Spiratim, aut spiraliter-convolutim_. _Onychem_ etiam dici, sub Voce præcedaneâ modò diximus. Estque Turbinatis omnibus commune. _Column._ cap. 18. §. 3: _Omnes Testas, quæ convolvuntur turbine, Operculum habere observatum est: nec nisi dimoto illo, Saxis adhærescunt. --- Saxum pro illo, cui adhærere pro tutelâ possint, tribuendum_. Illudque in aliis crassum, in aliis (ut in Cochleis quibusdam minoribus striatis Holsaticis) tenuius esse constat. _Column._ cap. 9. §. 1: _Geritque Operculum_ (Cochlea Terrestris Turbinata) _crassum et Cochleatum, ut in marinis observatur_. Et tale proin conjecturam Cochleæ Marinæ Exoticæ marmoreæ tribuit, cap. 10. §. 1.
+
+Cremata olim, in Usum Tincturæ, Opercula videntur. _Column._ de Purp. c. 1. §. 17: _Easdem vires crematis Operculis palustris Conchylii, Dioscorides reliquis marinis Purpuris tribuit._
+
+_Orbes_: Ventriosæ Testæ Spirales Convolutiones _Column._ de Purp. cap. 7. §. 1: _Octo vel novem Orbibus definitur_ (Turbo Terrestris non descriptus.) Ex quibus aliqui Annorum numerum supputant; sed falso, teste _Eodem_, cap. 1. §. 28. ex Aristotele et Plinio: _Quibus_ (Orbibus) _totidem, quot Annos habent_: addente: _Non enim ex Orbibus, quibus claviculatim contorquentur Testæ omnes_ (intellige, Turbinatæ præsertim) _Anni carum observari debent, etc. Si Orbis nomine quamlibet orbiculatam ventricosam partem, claviculatim intortam Testarum, esse dicas._ Et hujus ipsius negativæ suæ rationem ulteriùs (§. 31. et 32.) deducit.
+
+[Figura]()
+
+Hoc verò imprimis etiam ut addam, videtur operæ precium: Convolvuntur Orbes Turbinatorum plerorumque in sinistram partem. Contrà, ex sinistrâ in dextram, in Turbine Terrestri non-descripto (ab aliis nempe) et depicto apud _Column._ de Purp. cap. 7. §. 1. ut et in altero minore _Ejusdem_, depicto ibidem, cap. 8. Confer itidem titulum, _Voluta_.
+
+[Figura]()
+
+_Orbium Anfractus_: vid. sub Lit. A.
+
+_Oræ_: Limbi extremi Aperturarum in Testis, præcipuè in convolutis aut Turbinatis protuberantes, et velut turgentes aliquantò plus, præ Testæ texturâ reliquâ; orti ab Humore Salivali impacto, quo Turbinata per Hyemem se ipsa Scopulis agglutinant, ut Humor iste in Eminentiam aliquam sensim crassescat, quoniam Testa ipsa, Orificium non undique Scopulorum superficiei parallelum habet.
+
+_Orificium_: Cavitas subrotunda, per quam aditus ad interiora est. Confer _Oræ_.
+
+_Os, Oris_: 1. Apertura amplior partis Carnosæ anterioris, quâ Alimentum intrò transmittitur; vel Fauces: quo sensu, de Ore Purpuræ, actum vide in _Annotat._ 12. §. 7. (2.) Idem, quod Ora, vel Ampliatio exterior Testaceorum univalvium, quâ Scopulis adhærent, aspera vel lævis, rotunda vel triangularis. _Column._ de Purp. cap. 1. §. 20. ex Plinio: _Mutianus Muricem esse latiorem Purpurâ, neque aspero, neque rotundo Ore._
+
+_Ostrum_: Quid sit, et quænam circa hanc vocem consideranda veniant, jam supra prolixè, in _Annotatione_ 3. est actum.
+
+_Ova_: propriè quidem non sunt Partes, sed potiùs Fructus, et nova Individua Testaceorum, formâ Ovi se multiplicantium: communiter tamen pro Partibus habentur. Et ideò Vocem hanc nolui Silentio transmittere. Quin de Ovis Testaceorum, in _Annotationis_ 10. §. 24. et 25. actum vide: nec non _Annotat._ 11. §. 21. 22. et 23.
+
+**P\.**
+
+_Papaver_: Græcè [GREEK]: vid. Annotat. 12. §. 18. et confer Vocem _Meconium_.
+
+_Perlæ_: vid. _Margaritæ_.
+
+_Proboscis_: Elefantis propriè proprius: h. e. Prominentia longa, teres, flexilis, ac retractitis, quâ vel alimentum, vel qualescunque alias res attrahunt, aut minimò degustant, et sic vulgò de Muscis etiam dicitur, quarum Proboscides duæ, sunt quædam quasi Linguæ illarum, et processus exploratorii, hinc inde flexiles. Sed istiusmodi Excrescentia etiam Buccinis, Purpuris, et Turbinatis aliis quandoque tribuitur; præsertim Purpuris: ut etiam Escas perforare dicantur illâ.
+
+_Processus_: Protuberantes testarum partes, tàm crassæ in acumen tendentes, quàm planiores ac tenuiores, et velut Apophyses.
+
+_Prominentiæ_: Partes Testarum exstantiores.
+
+_Pulpa_: Caro Testaceorum quorundam planè tenera, e. g. Balanorum.
+
+_Pyramides_: Concretiones Crystallinæ, conicæ, longæ in Conchâ lapideâ. _Column._ de Purp. c. 16. §. 3: _In plures angulosas connexas pyramides concreti_.
+
+_Pyxis_: Concavitas cavernulæ, in crassiore Testarum parte, e. g. _Col._ de Purp. cap. 17. §. 2. de Conchâ Exoticâ mucronatâ, Striis fistulosis donatâ: _Habeatque ternas Connexiones pyxidatas_.
+
+**R\.**
+
+_Rhabdus_: ([GREEK]) Virga, Linea, Stria: unde [GREEK], virgatus; et inter Ostrea quædam [GREEK] vocantur, quasi dicas Virgata, vel pectinatim divisa, aut Striata: et _Fabius Columna_, Concham suam Exoticam mucronatam, eo quod Striis eminentibus, in mucrones exeuntibus ornatur, [GREEK] appellari posse ait: de Purp. c. 17. §. 3. Confer etiam _Annotat._ 10. §. 4.
+
+_Rima_: 1. in aliquibus Apertura totius Testæ Strictior, e. g. in Conchâ Venereà, et Conchâ utroque latere se colligente _Col._ de Purp. c. 20: _Rimam pro Ore habet lævem_. Icon est hæc:
+
+[Figura]()
+
+2. In Partibus Carnosis, Foramen oblongum acutangulum, ex commissurâ duorum laterum oblongorum ortum, aut strictus intercedens hiatus. _Col._ de Purp. c. 2. §. 2. _Rimam pro ore_ (habet Cochlea Iänthina) _in medio_ (Glandis carnosæ prominentis) _fœmininum ferè sexum referens, rubescente magis internâ parte. Iconem iterum dedimus in hoc ipso Lexico sub titulo _Glandis_.
 
 ...
