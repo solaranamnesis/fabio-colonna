@@ -23,9 +23,9 @@ Latin - PDF | Biolinum | Atkinson | Cursive | Kerkis
 English - Plain Text  
 English - PDF  
 
-## De _glossopetris_.
+## De Glossopetris Dissertatio.
 
-Latin - Plain Text  
+[Latin - Plain Text](https://github.com/solaranamnesis/fabio-colonna/blob/main/de-purpura/full-text-latin.md#de-glossopetris-dissertatio-1)  
 Latin - PDF | Biolinum | Atkinson | Cursive | Kerkis  
 English - Plain Text  
 English - PDF  
