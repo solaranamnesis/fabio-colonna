@@ -2206,7 +2206,7 @@ Solitariè; habetque se, ut funiculus nerveus albicans, ex Anatome hominis alià
 
 Sociatim; habetque se, ut breve quoddam Corpus tendinosum aut ligamentosum, circa cardines Bivalvium præsertim conspicuum, album (interdum et coloris alterius) durum, latum, crassum, ac tenax. _Worm._ lib. 3. Mus. c. 7. p. 254. _Cardinibus non junguntur farctis invicem_ (Chamæ Piperatæ, Biveroni Italicè) _sed Nervo, ut Ostrea. Item Mytuli, Pectines_, etc. Aptiùsque _Nerveum Vinculum_ dicitur.
 
-_Nodus_: videtur idem esse, quod Ginglymus, vel Inarticulatio. _Column._ d. Purp. cap. 11. §. 2: _Ad differentiam earum (Concharum) _quæ brevi Nodo ligantur_. Idem cap. 15. §. 4. _Hæ omnes Anomiæ brevi Nodo ligantur, ob Cervicis angustiam_.
+_Nodus_: videtur idem esse, quod Ginglymus, vel Inarticulatio. _Column._ d. Purp. cap. 11. §. 2: _Ad differentiam earum_ (Concharum) _quæ brevi Nodo ligantur_. Idem cap. 15. §. 4. _Hæ omnes Anomiæ brevi Nodo ligantur, ob Cervicis angustiam_.
 
 _Notæ_: Maculæ. _Col._ de Purp. cap. 4. §. 2: _Circa Volutarum imum Castaneis Notis distincta_. Habenturque Muricum species Maculis virgatis, tanquam _Notis Musicalibus inscriptæ_; quales Clar. _Olearius_ (Tab. 30. Camer. Gott. ad num. 4. 5. 6. 7. pag. 66.) _Conchas Musicales_ nominat; ego verò in Testaceorum meorum Catalogo privatim appello eâ in parte, ubi de _Turbinatis muricatis_ agitur, _Conchas in superno spiræ ambitu Muricatas_, Muricum _serie simplici; lividas, Virgulis multis ruffis disruptis, et velut Lineis Musicalibus inscriptas, Marmoreas quibusdam dictas_: aut breviùs; _Murices Marmoreos lineis velut Musicalibus inscriptos; qualem etiam depingit Beslerus in_ Gazophylacio, Tab. 23.
 
