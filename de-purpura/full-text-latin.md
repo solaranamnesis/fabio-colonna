@@ -2266,6 +2266,6 @@ _Rima_: 1. in aliquibus Apertura totius Testæ Strictior, e. g. in Conchâ Vener
 
 [Figura]()
 
-2. In Partibus Carnosis, Foramen oblongum acutangulum, ex commissurâ duorum laterum oblongorum ortum, aut strictus intercedens hiatus. _Col._ de Purp. c. 2. §. 2. _Rimam pro ore_ (habet Cochlea Iänthina) _in medio_ (Glandis carnosæ prominentis) _fœmininum ferè sexum referens, rubescente magis internâ parte. Iconem iterum dedimus in hoc ipso Lexico sub titulo _Glandis_.
+2\. In Partibus Carnosis, Foramen oblongum acutangulum, ex commissurâ duorum laterum oblongorum ortum, aut strictus intercedens hiatus. _Col._ de Purp. c. 2. §. 2. _Rimam pro ore_ (habet Cochlea Iänthina) _in medio_ (Glandis carnosæ prominentis) _fœmininum ferè sexum referens, rubescente magis internâ parte_. Iconem iterum dedimus in hoc ipso Lexico sub titulo _Glandis_.
 
 ...
