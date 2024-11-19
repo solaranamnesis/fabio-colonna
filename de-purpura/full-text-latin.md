@@ -2268,4 +2268,123 @@ _Rima_: 1. in aliquibus Apertura totius Testæ Strictior, e. g. in Conchâ Vener
 
 2\. In Partibus Carnosis, Foramen oblongum acutangulum, ex commissurâ duorum laterum oblongorum ortum, aut strictus intercedens hiatus. _Col._ de Purp. c. 2. §. 2. _Rimam pro ore_ (habet Cochlea Iänthina) _in medio_ (Glandis carnosæ prominentis) _fœmininum ferè sexum referens, rubescente magis internâ parte_. Iconem iterum dedimus in hoc ipso Lexico sub titulo _Glandis_.
 
-...
+_Rostrum_: 1. In Univalvibus, Productio Orificii Testæ, plûsminûs longa, recta, et repanda, angulosa, vel rotundior. _Column._ de Purp. cap. 1. §. 20. ex Plinio: _Neque_ (Muricem esse) _in angulos prodeunte Rostro, sed simplice Conchâ, utroque latere se colligente_. Rostro tamen aliquo, utut brevi et repando, Purpuræ Testam gaudere, ex Effigie, suis in locis datâ, patet affatim. Ast impossibile esse, ut illo Conchylia alia perforet, postmodùm in _Annotationis_ 12. §. 13. ostendimus. 2. In Bivalvibus Rostrum dicitur quoque Eminentia oblonga Testæ alterutrius, quâ alteri, (sociæ suæ) committitur, eique incurvatim superincumbit; e. g. in Conchis Anomiis _Columnæ_ de Purp. cap. 12. §. 5: _Omnes peculiari notâ sunt præditæ, quod Cervice prominente Rostratâ pertusâ oriuntur, quâ Turbinatorum more Aquam haurire et exspuere possunt_. Iconemque hanc _Autor_ addit:
+
+[Figura]()
+
+3. Rostra in iisdem Bivalvibus dicuntur prætereà acutæ Cuspides aut Mucrones, quibus Limbus Conchæ Exoticæ exasperatur, descriptus â _Columnâ_ de Purp. cap. 17. §. 1.
+
+_Rugæ_: Eminentiæ Testaceorum in oblongum productæ, latiores, et velut Undæ, aut strictiores; profundiores, aut superficiales; obliquè, aut rectà ductæ; densiùs compactæ, aut laxiùs à se distantes; molliores (in Carne quorundam) aut duræ præsertim, in Testis multis conspicuæ, e. g. Chamarum, Pectinum, Cochlearum, Turbinum quorundam, nostræ Purpuræ, ac similium. Ita enim _Column._ c. 10. §. 4. de Cochleâ Marinâ Exoticâ: _Rugis obliquè profundioribus, ut quodammodo aspera sit tangenti._ Et cap. 2. §. 3. de Conchâ [GREEK]: _Obliquis densioribus Rugis exasperata._ Et cap. 12. §. 3. de Conchâ Anomiâ Rariore: _Concha parva est, --- obliquè parum additamentis Rugosa, sed non ob id aspera, sed lævis._ Icon inferiùs relata exstat sub Voce _Vertex_.
+
+**S\.**
+
+_Saliva_ Purpuræ: vid. _Annotat._ 12. §. 20.
+
+_Sanguis_: Propriè satis de Humore Vitali Testaceorum purpureo, præsertim Purpuræ, dicitur. _Column._ de Purp. cap. 1. §. 23. et 37. ex Martiali:
+
+_Sanguine de nostro tinctas, ingrate, lacernas_  
+_Induis._ --- --- Dicitur etiam Purpuræ Flos, Humor, Sanies, Lacryma: et confer Tit: _Ostrum_.
+
+_Sanies_: i. e. Sanguis vel Succus tingens Purpurarum. _Column._ c. 1. §. 36: _A nemine verô hucusque_ (conspicitur depicta Purpura) _interno Animali observato; nedum Purpuream Saniem fundente_.
+
+_Semen_, Seminale Principium Purpurarum, et aliorum Testaceorum. Vid. _Annotat._ 11. §. 16. seq.
+
+_Sinus_: Arcuata, et velut lunata Testæ Concavitas. _Col._ de Purp. c. 18. §. 1; de Conchâ Natatili Netritode: _Caret illo Lunato Sinu circa Columellæ summum, quo Lingua exseri possit, ut in Congeneribus._
+
+_Spiræ_: vid. Volutæ.
+
+_Spondylus_: Ita Carnem Testaceorum Græcis dici, ait _Jonstonus_, de Aquatil. Exsang. pag. 36. b.
+
+_Spuma_: Humor viscidus, in Bullas dilatatus. _Column._ de Purp. c. 2. §. 3: _Copiosum extuberantem satis, atque veluti cartilagineam spumam vitream fundebant omnes_ (Cochleæ Iänthinæ) _non secus, ac Aquâ, diluto Sapone multo, et concusâ, atque paleæ vel alterius rei exiguâ fistulâ intinctâ, et inflatâ, paulatim evenit, ut puerorummos est Neapoli, etc._
+
+_Stomachus_: confer _Ventriculus_.
+
+_Striæ_: Eminentiæ strictæ, sed in longum rectà aut obliquè, (per Convexum Testarum præsertim) ductæ. Confer, _Rhabdus_. Deque illis fusiùs paulò actum in _Annotat._ 10. est. Sunt videlicet magnæ, aut parvæ: eminentes, (dictæ _Exochæ_) aut compressiores. Et Eminentes quidem vel solidæ, vel fistulosæ, in Conchâ Exoticâ. _Column._ de Purp. cap. 17. §. 1. Vel latiores, aut strictiores: Læves, aut Asperæ: _Column._ de Purp. c. 1. §. 28. _Ab his dependent tuberosæ, atque parum muricatæ Striæ, Testam per longum exasperantes_. Juxta longitudinem Testarum dispositæ, ut jam dictum, vel transversim excurrentes, ut in Lepade parvâ, Myrti Morbus dictâ, et depictâ apud _Column._ c. 6. §. 2. hâc figurâ:
+
+[Figura]()
+
+laxius disposiiæ, aut densiùs, ut in Conchâ [GREEK] _Col._ c. 11. §. 3: _Externè admodùm densè Striata._ (Testa.)
+
+_Striges_: Interstitia forsan depressiora ac plana Striarum eminentium, in Conchâ alterâ Anomiâ Striatâ _Column._ de Purp. c. 15. §. 1: _Senis Striis, totidemque Strigibus in singulis lobis, quibus margines denticulatæ fiunt_. Icon est talis, ibi exstans:
+
+[Figura]()
+
+Certè non tam Strias duplicatas et fistulosas, quàm ab his distinctum quid esse, patet tum ex adducto loco _Autoris_; tum ex _Ejusdem_ etiam hoc, de Conchâ Exoticâ, cap. 17. §. 1: _Huic læves et latiores_ (Striæ) _duplo ferè sunt Strigibus_. E contrario _Wormius_ lib. 3. Mus. c. 7. p. 253. Striges habet pro Canaliculis, de Conchâ Echinatâ vel Aculeatâ sic scribens: _Notandum, quod aculei sint im Exochis tantùm, non verò in Canaliculis, (quas Striges quoque et Strigiles quidam vocant) siti._
+
+_Strigiles_: idem quod Canaliculi, juxta _Wormium_ jamjam adductum; quod Striæ verò, juxta _Vitruvium_.
+
+_Succus_: Humor Testaceorum, triplicter se habens. Vel enim 1. intelligitur Succus inter concavum Testæ, et Convexum carnis natans, plerorumque Salsus; qui parum aliud, quàm mistura quædam Aquæ marinæ haustæ, cum Succo salivali proprio Carnis, transsudatione eò delato. Vel 2. Succus ipse jam dictus, Carni immersus, dulcis, et albescens utplurimùm, si exprimatur, aut animal vulneretur. Quamvis Coloratum in Cochleâ Iänthinâ observarit _Columna_, sic scribens, de Purp. cap. 2. §. 4: _Et paxillo vel acu sauciatâ Animalis Cervice, tres aut quatuor guttæ ex Testâ decidunt; et quicquid tangunt, inficiunt purpureo cœruleo colore admodùm hilari, ut nihil suprà commendari possit._ Vel 3. Succus Coloratus Carnis Testaceorum quorundam, maximè Purpuræ, in Venâ peculiari collectus; sicut et Cochleæ modò-dictæ Iänthinæ, de quâ proin ibidem: _Copiosum_, inquit, sponte evomunt Conchæ istæ Succum purpureum Violaceum, ut se ipsas inficiant, et colligentium Manus._ De Succo Purpuræ homonymo, vide _Annotationem_ 12. §. 20. ad _Column._ Qui Succus, alias etiam dicitur _Flos_: et sic confer in hoc _Dictionario_ superiùs, Titulum _Flos_.
+
+_Sulcus_: Incisura simplex profundior, per medium (e. g. Conchæ cujusdam lapideæ Ferrugineæ) laxâ sui diductione excurrens.
+
+_Sutura_: Inscriptio, aut Linea profundior Testæ, ipsam apparenter magis, quàm verè in partes, aut duas Testas secans. _Wormius_ lib. 3. Mus. cap. 7. pag. 254: _Chamæ genus rarum, quod ad Peloridas referendum videtur. --- Oblongam, et intùs lævem testam habet, in duas quasi Partes sectam, junctamque per Lineam simplicem dentatam, instar Suturæ: quæ Sutura tamen exteriore parte non apparet._
+
+**T\.**
+
+_Testa_: Durior pars Testaceorum, vel [GREEK], per quam, forinsecus ipsis obnatam à Natitilibus teliquis, crustâ, pelle, membranuláve vestitis, distinguuntur: inserviens ipsis tam habitaculi, quàm munimenti loco. Et peculiariter de Purpuræ Testâ, hujusque partibus fusè est actum suprà, _Annotat._ 9. totâ. Cui adde verba _Autoris_ hæc, ex Præfatione: _Neminem ipsa Testis inhabitantia Animalia_ (Purpuram exhibentia) _considerasse, mirum sanè videri potest._ Et mox: _Exponere híc voluimus Purpuram, Testas simul, ipsaque Animalia in Physicam Contemplationem adducentes._ Et in ipsius Tractatûs Cap. 1. §. 7: _Testæ, Græcè [GREEK], ex [GREEK], quod est Os, quia Ossium sit duritie Marina Concha._ Jam verò de voce Ostri, Ostracei, etc. ex professo actum vide _Annot._ 3. et de Voce Conchylii, _Annotat._ 4.
+
+_Testulæ Testarum_: de his in _Annotatione_ 10. §. 7 et seq; pertractatum est.
+
+_Trachàlum_: Græcè [GREEK]. Muricum vel acutorum processuum in Testis summitates. Deque Voce hâc pluribus actum est in _Annotationis_ 9. §. 14.
+
+_Tubera, Tubercula, Tuberositates_: Eminentiæ subrotundæ, breves in Testis, Colliculorum instar, obtuso modo elatæ. _Column._ de Purp. c. 1. §. 27: _Illorum_ (Muricum) _vice brevioribus et crassioribus horret tuberculis._ Et cap. 5. §. 1. de Buccino Exotico parvo: _Tuberculis nigro-flaventibus, et Lineis elatis candida Testa exornatur._
+
+_Tubulus_: Canalis, Productio stricta et corcava Testæ, ab ejus præcipuè orificio emergens. _Column._ de Purp. c. 1. §. 28: Brevi admodùm _Tubulo vel Canali, oris pars superior definitur._ Usus in aliquibus; Concedere Linguæ transitum, ut se proserat forâs. _Column._ ibidem: _Quæ anteâ Tubuli sive Canales, ex quâ Linguæ ad usum proferebatur, fuère._
+
+_Turbo_: Accipitur hæc vox in modum vel Totius, vel Partis. _Priori modo_ denotat Univalvium species, ex Columellâ intùs, tanquam axe, firmatam gerentes Volutam, vel spiram, ex amplo orificio in tenuem apicem, breviùs longiusvè tortam: deque Turbinatorum istiusmodi charactere distinctivo aliquid dictum est in _Annotat._ 4. §. 5. _Posteriori modo_ denotat spirales istas Volutæ revolutiones, abstractim à Columellâ suâ interiore spectatas; h. e. illam Testæ Partem, quæ foris præsertim conspicua, ex amplâ sui concameratione ventriositateque paulatim desinit, usque dum in centrum exile terminetur. Confer etiam Tit: _Voluta, Orbis, Spira._
+
+**V\.**
+
+_Valvæ_: Testæ Testaceorum. Specialiter illæ, quarum non una aliqua sufficit, ad Animalculi partes, intùs absconditas, protegendas; sed duæ plerumquæ, aut plures sibi conjunguntur. Unde Testacea ad summum in Univalvia, Bivalvia, et Plurivalvia, superiùs in _Tabulas_ distributa sunt. _Column._ de Purp. c. 15. §. 1. de Conchâ Anomiâ Striatâ (quæ bivalvis est) loquens: _Cujus obesa Valva minor est, atquæ tribus simul junctis Testis constructa videtur._ Et cap. 17. §. 2: _Ut clausa testa se tangat cum alterius Valvæ cervice._
+
+_Vena Purpuræ_: de hâc vide _Annotat._ 12. §. 19.
+
+_Venter_: 1. Pars Carnosæ Testaceorum substantiæ concava, alimentis recipiendis inserviens, circa Meconium vel Papaver sita, in Turbinatis, et utcunque respondens Avium Ingluviei. 2. Testæ pars amplior, concava, et velut formicata, distincta in Turbinatis à Turbine eorum strictiore, vel angustiore Collectione in Spiram.
+
+A Ventre _Ventriosus_, vel _Ventricosus. Column._ de Purp. c. 1. §. 27: _Quod non sit ita ventricosa._ Et §. 32: _Ut ventriosiores efficiantur, non longiores._ Et §. 33: _Maculis, in internâ ventriosâ parte._
+
+_Ventriculus_, à Ventre jam-dicto parum discrepat: inque Turbinatis Ori continuò jungitur, magnitudine discrepans; in plerisque tamen exiguus. De Ventriculo Purpurarum etiam actum vide _Annotat._ 12. §. 17.
+
+_Verrucæ_: Eminentiæ Orbiculares, breves, obtusæ, aut _Tubercula_, (de quibus etiam in præcedentibus actum, sub Lit. T.) muricibus vel aculeis mediocribus breviora, Testam forinsecùs inæqualem reddentia, e. g. in Purpurâ, apud _Column._ cap. 1. §. 27. ut et in Buccino parvo Exotico, (cap. 5. §. 1.) cujus Iconem, huic Dictionario illatam, vide sub titulo: _Linea_.
+
+_Vertex_: Retorta aliquorsum subrotunda et strictior Testæ pars. In specie verò 1. Cardinis acutior Eminentia in Testis bivalvibus, quâ parte colligantur, aut mutuò sibi committuntur. Unde _Concha Anomia, Vertice Rostrato_, describitur ac depingitur apud _Column._ de Purp. cap. 12. hâc figurâ:
+
+[Figura]()
+
+2. Processus corniformis anomalus, in Conchâ quàdam Exoticâ _Ejusdem_, cap. 19. §. 2. 3. Iconque ibi habetur talis:
+
+[Figura]()
+
+_Villi_: Languo muscosa, Testis aliquibus adnascens. _Col._ de Purp. c. 1. §. 30: _Non paucas habuimus Testas, villosas omnes_. Confer Tit. _Fibræ_.
+
+_Vinculum Nerveum_: vide _Nervus_.
+
+_Umbilicus_: 1. Latior Columellæ pars, in Turbinatis, pone quam eorundem Orificium incipit, suâque tortuo sitate spirali, in Testæ intimiora se abdens, et ipsa latior Columellæ basis; quale quid imprimis conspicuum est in Testâ Turbinis Exotici, apud _Columnam_, qui cap. 3. proin Umbilicatum nominat, datâ hâc figurâ:
+
+[Figura]()
+
+nec non in Cochleâ Terrestri turbinatâ et Striatâ _Ejusdem_, de quâ cap. 9. §. 1. sic scribit: _Umbilicum ferè relinquens in Centro, et eodem Orbium Ordine striantur Orbes, etc._ Figura est talis:
+
+[Figura]()
+
+2. Centrum, etiam concameratum, vel medium Testæ Lepadum, quoad concavam earum superficiem spectatarum. Vide _Column._ de Purp. cap. 6. §. 1.
+
+_Unda_: Rugarum Testæ structura minùs stricta, aut acutangusa; sed amplior potiùs, et in rotundum oblongè elata; qualis est Concha Anomia rarior _Columnæ_ de Purp. c. 12. cujus Icon paulò antè adducta hîc est, sub voce _Vertex_. Item Concha Anomia 4. margine Undosa ab _Ipso_ dicta, cap. 14.
+
+_Unio_: vide Tit. _Margarita_.
+
+_Volumina_: idem quod _Volutæ_ (de quibus mox) vel Turbinum Curvaturæ, in Spiram redeuntes. _Column._ de Purp. c. 3. §. 3: _Quinque Voluminibus_ (Turbo Exoticus) _inter quæ veluti Linbus apparet._
+
+_Volutæ_: à Volvendo, vel revolutione spirali dictæ, Volumina aliàs, Orbes, Circuitiones, aut Helices Turbinatorum, circa columellam; præcipua, et distinctiva illorum pars, aut character universalis; in aliis simplex, in aliis duplex, triplex, etc. Simplicis enim exemplum _Autor noster_, de Purp. c. 10. §. 2. nobis suppeditat, scribens de Cochleâ marinâ Exoticâ: _Differt etiam, quia unicâ tantùm Volutâ sive Circuitione definitur, illâque vix conspicuâ_. De duplici hæc notat, cap. 18. §. 5. circa Concham quandam Natatilem rariorem: _Volutas duas, quibus Testa contorquetur_. Ac de triplici, c. 2. §. 4: _Volutis tribus tantùm Constructa est Testa Cochleæ Iänthinæ_. Indifferenter verò, ex Numero Volutarū an numerus Annorū sit colligendus, vide _Annot._ 11. §. 2. seq.
+
+**Z\.**
+
+_Zona_: cum _Fasciâ_ ferè coincidit, de quâ superiùs, sub lit. F. _Column._ de Purp. c. 18. §. 5. de Conchâ Natatili Neritode: _Zonis distinguitur flavis et cinereis_. Iconemque hanc dat:
+
+[Figura]()
+
+Et hic esto
+
+DICTIONARII OSTRACOLOGICI
+
+FINIS.
