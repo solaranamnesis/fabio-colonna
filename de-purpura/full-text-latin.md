@@ -211,7 +211,7 @@ _Et gemmâ bibat, et Sarrano dormiat Ostro._
 
 *) _lib. 2. Georg. v. 506._
 
-§\. 7. Sed _Vitruvius_, tanquam Latinus, omisit verum Ostri Etymon, quod non est Latinâ derivatione factum, sed Græcâ. Testas quidem sive Conchas marinas Generis appellatione Græci dicunt Ὄστρεα et ὄστρεια, ex quibus Ostrum Latini purpureum colorem, et Ostracium ex Ostreâ dicunt. Græcis verò ex ὄστεον, quod est οστ, quia Ossium sit duritie Marina Concha, Etymon sumpsisse putat _Eustathius_, sicuti Latinos à Testarum duritie, Testas. _Athenæus_* tanquam generalissimum acceptum refert, cum ait: _Solenistræ dicebantur, qui hujusmodi Ostrea colligebant_, ut inferiùs narrat; scilicet à Solenistrum capturâ.
+§\. 7. Sed _Vitruvius_, tanquam Latinus, omisit verum Ostri Etymon, quod non est Latinâ derivatione factum, sed Græcâ. Testas quidem sive Conchas marinas Generis appellatione Græci dicunt Ὄστρεα et ὄστρεια, ex quibus Ostrum Latini purpureum colorem, et Ostracium ex Ostreâ dicunt. Græcis verò ex ὄστεον, quod est Ος, quia Ossium sit duritie Marina Concha, Etymon sumpsisse putat _Eustathius_, sicuti Latinos à Testarum duritie, Testas. _Athenæus_* tanquam generalissimum acceptum refert, cum ait: _Solenistræ dicebantur, qui hujusmodi Ostrea colligebant_, ut inferiùs narrat; scilicet à Solenistrum capturâ.
 
 *) _lib. 3. cap. 12._
 
@@ -697,7 +697,7 @@ id citra Tralationem etiam dicere poterat, respectu Imaginis Auroræ, purpureo s
 
 §\. 2. De _Modo Parandi Ostrum_ in peculiari Annotatione inferius, ad §. _Autoris_ 23. et 24. præsentis Capitis agetur.
 
-§\. 3. Interim ne quid intactum principiò statim, quoad Nomenclaturas Rerum, transsiliat industria mens _Columnæ_; ecce, ad _Etymon Ostri_ mox (§. 7.) enucleandum vertit se; et rectè Vocem à Græco [GREEK], quod denotat [GREEK], deducit, cùm in Duritie et Ossa et Testæ Purpurarum non parum conveniant. Ob eandemque causam _Ostrea_ quoque dicta putantur, quod Testis durissimis duabus, tanquam Osseis claustris, communita sint, frangendis cum impetu, antequam delicatam carnem contentam vescam, prædari detur: et nunc ab _Ostro_, nunc ab _Ostreâ_, plusculæ voces aliæ; quæ sequuntur.
+§\. 3. Interim ne quid intactum principiò statim, quoad Nomenclaturas Rerum, transsiliat industria mens _Columnæ_; ecce, ad _Etymon Ostri_ mox (§. 7.) enucleandum vertit se; et rectè Vocem à Græco Ὀστέον, quod denotat Ος, deducit, cùm in Duritie et Ossa et Testæ Purpurarum non parum conveniant. Ob eandemque causam _Ostrea_ quoque dicta putantur, quod Testis durissimis duabus, tanquam Osseis claustris, communita sint, frangendis cum impetu, antequam delicatam carnem contentam vescam, prædari detur: et nunc ab _Ostro_, nunc ab _Ostreâ_, plusculæ voces aliæ; quæ sequuntur.
 
 §\. 4. _1._ _Ostrearius Panis_, ab Obsoniis sic dictus _Plinio_ lib. 18. cap. 1; quam Nominis rationem Ipse fert; videturque innuere Panem Veterum, cum Ostreis vescerentur. _2._ _Ostreatum Tergum_, h. e. durum, asperum, et velut Ostrearum Testis armatum, _Plautus_ habet alicubi; ni fallor, in Pænulo. _3._ _Ostrifer Locus_, qui Ostreum vel Ostream producit: utrumque enim, tam Ostreas, quàm Ostrea, orum, dicimus.
 
