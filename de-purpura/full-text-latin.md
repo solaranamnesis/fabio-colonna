@@ -725,7 +725,7 @@ id citra Tralationem etiam dicere poterat, respectu Imaginis Auroræ, purpureo s
 
 §\. 16. _Aliæ_ enim é contrario insuper ex Glebâ quidem etiam, sed siccâ penitus, nec unquam subjectâ Figuli manibus, paratæ: quam nimirum Natura ipsa subtùs in Molem aut Terram rubram, ope Subterraneorum Ignium, priùs coxerat, ut _Torno dein subjici_, inque Ollas, Urceos, ac Pateras per industriam humanam formari possent, suffragante _Johanne de Laet_, qui lib. 2. Gemm. et Lapidibus, cap. 10. ex _Gesnero_, hæc profert: _Plurii_, inquiens, _Pagus est Rhætorum egregius, ultra Alpes proximè Clavennam oppidum, Lacui Lario (quem Comensem hodie vocant) vicinum, in monte proximo effossi lapides quidam pulli coloris et molliusculi, ad lebetës et varia vasa tornantur: et inde in diversas Italiæ, vicinasque Regiones exportantur. Jo. Augustinus Pantheus Chemista, hunc Lapidem Lebetum vocat, et ni fallor, alio nomine Petram Columbinam, nescio quam ob causam. In Siphno (inquit Plinius lib. 36. c. 22.) Lapis est, qui cavatur, tornaturque in vasa, coquendis cibis utilia, vel ad esculentorum usus: quod et in Comensi Italiæ lapide accidere scimus_, etc. _Talia_ item _sunt apud Chattos Saxa_, (pergit Autor) _in fusco cinericea, in quorum formas quodvis metallum liquidum funditur. Hoc genus in Siphno, et in Italia circa Comum excavatur, tornaturque in vasa coquendis cibis utilia, quæ circumdantur circulis ferreis, etc._ Ex quibus abundè patet, _Tornatiles Urnas_ has, cum _Fictilibus_ istis, de quibus in præcedenti Paragrapho, non esse confundendas.
 
-§\. 17. Atque easdem _Fictiles_, quæ aliàs [GREEK] _Fossiles_ vocantur, _Funerales aut Cinerales_ placet dicere, ab usu præcipuo, quo priscis Ethnicis habebantur: nimirum, ut Cinere ac Ossibus Mortuorum suorum repletas, tectasque lapide, vel aliâ re, telluri committerent; majores, mediocres, parvas; spe forsan aliquâ (per Traditiones obscurè acceptâ,) futuræ Resurrectionis: cujusmodi spes Ægyptios imprimis, cadavera Mortuorum non comburentes, sed balsamo, cedriâ, bitumine, aut aliis rebus condientes, ad conservanda eadem quamdiu à Corruptione, traxisse, non vana opinio est.
+§\. 17. Atque easdem _Fictiles_, quæ aliàs κατ ᾽ ἐξοχὴν _Fossiles_ vocantur, _Funerales aut Cinerales_ placet dicere, ab usu præcipuo, quo priscis Ethnicis habebantur: nimirum, ut Cinere ac Ossibus Mortuorum suorum repletas, tectasque lapide, vel aliâ re, telluri committerent; majores, mediocres, parvas; spe forsan aliquâ (per Traditiones obscurè acceptâ,) futuræ Resurrectionis: cujusmodi spes Ægyptios imprimis, cadavera Mortuorum non comburentes, sed balsamo, cedriâ, bitumine, aut aliis rebus condientes, ad conservanda eadem quamdiu à Corruptione, traxisse, non vana opinio est.
 
 §\. 18. _Fabricius_, citante _Albino_ (Weissnisch: Berg-Chronic: Tit 23. pag. 177. 178.) persuasione Vulgi potiùs, quàm propriâ opinione actus, _Ollas_ illas _à Pygmæis in Terrâ relictas_ refert, qui quondam in Antris Thuringiæ, et vicinarū regionum, habitaverint: unde Zwerg-Töpfe ibi quoque appellentur. Imò vivere etiamnum in subterraneis passim, Pygmæorum Gentem, et plura istiusmodi Vascula fingere. Quam fabulam autoribus suis defendendam, firmiterque credendam, lubens mittimus.
 
@@ -743,7 +743,7 @@ _Secunda_, Signo ☾ notata, amplitudine (diametraliter) æquat Uncias 3. Altitu
 
 Et _Tertia_, sub Signo ✶ æquat Amplitudine Uncias quasi 6. Altitudine Unc. 2 1/2.
 
-§\. 22. In _Italia_ Sepulcrales Romanorum Urnæ proprio nomine _Ossuaria_ sunt dicta, ac _Cineraria_; Græcè [GREEK], vel [GREEK]. Eaque non Fictilia solùm, sed ex Marmore quoque, imò Argento, ac Auro facta esse, convenienter _Kirchmannus_ nos admonet lib. 3. de Funerib. Romanorum, cap. 8. et quoad molem parva, minutaque Vascula exstitisse, quodammodo ex _Propertii_ lib. 4. eleg. ult. addiscimus, qui ait:
+§\. 22. In _Italia_ Sepulcrales Romanorum Urnæ proprio nomine _Ossuaria_ sunt dicta, ac _Cineraria_; Græcè Ὀστοθῆκαι, vel ὀστοδοχεῖα. Eaque non Fictilia solùm, sed ex Marmore quoque, imò Argento, ac Auro facta esse, convenienter _Kirchmannus_ nos admonet lib. 3. de Funerib. Romanorum, cap. 8. et quoad molem parva, minutaque Vascula exstitisse, quodammodo ex _Propertii_ lib. 4. eleg. ult. addiscimus, qui ait:
 
 _Non minùs immites habui Cornelia Parcas,_  
 _Et sum, quod digitis quinque levatur, onus:_
@@ -790,7 +790,7 @@ _Inspirare jubet._ --- --- et versum hunc _Virgilii_ ex 6. Æn. adducit:
 
 _Sed tum fortè cavâ dum personat æquora Conchâ._  
 
-9\. _Conchylium_ dein, (Græcè [GREEK]) similiter viâ Significatûs non constanter unius apud Autores, sed triplicis aut quadruplicis incedit. Dici enim illud legimus
+9\. _Conchylium_ dein, (Græcè Κογχύλιον) similiter viâ Significatûs non constanter unius apud Autores, sed triplicis aut quadruplicis incedit. Dici enim illud legimus
 
 1\. _pro Testaceo Animali quovis_, suffragante _Columnâ_, in hujus cap. §. 10. 25. sicut Conchæ vox, in antè-dictis, generalissimè Ostracodermis vel Testaceis omnibus, attributa est.
 
@@ -925,7 +925,7 @@ _Ut gemmâ bibat, et Sarrano dormiat Ostro._
 
 Id quod _Sandysius_, Anglus, aptè declarat, lib. 3. Itinerarii, (German. edit, pag. 466:) agens incidenter ibi de Panni, preciosâ hodienum Tincturâ imbuti genere, _Scharlach_, his verbis: _Welcher Nahme scheinet von Ihr, (Urbe Tyro) herkommen Zu sein. Dann Tyrus wird Sar genennet, weil Sie auf einem Felsen, davon Syria den Nahmen hat, lieget; etc. massen dann die Arabier Scan für San, und Scar für Sar aussprechen_.
 
-_Phœnicea item, aut Punica_, à [GREEK], cruento, vel [GREEK], quod [GREEK] vel rubrum denotat: unde _Phœnices_, populi, vel Rubicundi, dicti, quod apud Ipsos Tinctura Purpuræ vel inventa olim, vel certè celebris fuerit; alio nomine _Pœni_ aut _Puni_: quos eosdem cum Phœnicibus esse, ex _Salmasio_ docet _Ant. Thysius_, notis ad _Sallust_. Bell. Jugurth. p. 242: et _Malum Punicum_ dicitur, quod Grana ipsissimum ex Rubro purpurascunt, aut, ut _Ovidius_ aptè canit lib. 4. de Pont. eleg. 15. v. 8.
+_Phœnicea item, aut Punica_, à φοινίσσω, cruento, vel φοίνιξ, quod ἐρυθρὸν vel rubrum denotat: unde _Phœnices_, populi, vel Rubicundi, dicti, quod apud Ipsos Tinctura Purpuræ vel inventa olim, vel certè celebris fuerit; alio nomine _Pœni_ aut _Puni_: quos eosdem cum Phœnicibus esse, ex _Salmasio_ docet _Ant. Thysius_, notis ad _Sallust_. Bell. Jugurth. p. 242: et _Malum Punicum_ dicitur, quod Grana ipsissimum ex Rubro purpurascunt, aut, ut _Ovidius_ aptè canit lib. 4. de Pont. eleg. 15. v. 8.
 
 _Punica sub lento cortice Grana rubent._
 
