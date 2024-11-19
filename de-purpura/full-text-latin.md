@@ -1229,7 +1229,7 @@ _Et Ovidius:_
 
 _Nec quæ de Tyrio Murice lana rubet._
 
-_Non nescimus, Plinium Muricer pro Buccinis, i. e. [GREEK] Aristotelis, usurpasse, dum ait: Purpuræ vivunt annis plurimum septenis, latent sicut Murices circa Canis ortum, tricenis diebus, etc. Quæ Aristoteles ita Græcè dixit, [GREEK]. Et alibi Purpuram et Buccinum ad tincturæ usum aptas recenset, dum ait: Concharum ad purpuras et Conchylia eadem quidem est materia etc. Buccinum ore rotundo margine tantum incisa, et Purpuram clavatam et rostratam, aculeis in orbem septenis, qui non sunt in Buccino. Et alibi, Muricis nomen, tanquam genus turbinatorum accepisse, dum firmiores testas esse asserit, quàm Pectines. Et alibi muricem appellasse Concham, utroque latere se colligentem, quæ Mutiani Echeneis est. Et alibi: Muricum generis sunt, quæ Græci vocant Colycia, alii Corythia, turbinata æquè, sed minora multo. Nos legeremus [GREEK], à Verbo [GREEK], eo magis, quod æquè turbinata, sed minora esse, idem referat, Buccini species parvas forsan intelligens: Carychia reponentes. Et alibi, omnia Maris animalia recensens, Muricem nominat et, Buccinum omisit, Purpuram suo loco referens. Quamobrem suspicari non parum possumus, et forsan asserere, nil aliud muricem esse apud Plinium, quàm Buccini Synonymum; et turbinati genus ad Tincturæ usum, vel Buccini effigie. At retenta Muricum derivatiane ab aculeis, quibus exasperantur, ad differentiam Purpurarum, quæ etiam sunt muricatæ: reliqua testaceorum turbinatorum intelligamus, quæ muricata sint, alio quam Purpuræ modo; ut scilicet triplici ordine Trigono Tribuli modo, quoque versu reposita, elatis sursum aculeis infesta, non in orbem, ut in Purpurâ. Vel non recedentes â Rondeletio, reliqua testacea grandiora tuberculis vel aculeis aliquo modo infesta, nec longo rostro ut Purpura, sed illo carentia. Quam autem Purpuram intelligamus à Plinio descriptam, illam dicimus esse, sed littoralem à Doctissimo Rondeletio depictam; quam Neapolitani Sconciglio appellant, mensis expetitam, et piscatorio foro quotidianam; cujus Species plures observavimus, Magnitudine, colore, atque aculeis variantes. Rariorem hanc Exoticam, Pelagiæ testæ speciem, Romæ habuimus adhuc invisam, quæ littorales nostrates quadruplo superat, decem pollices longa, et quatuor superans diametro, remisso turbine, tribus anfractibus contorto, ventriosa, ore circa columellam aurito, pari limbo elato et lato, oris orbem alterâ parte adimplens, strias per longum orbis divisas, ut vulgaris, habens, in quibus magni admodum et tres pollices æquantes aliqui contorti aculei sunt, eodem numero, contrario modo recurvi, et ideo Corniculatam appellavimus. In summo longo quinque pollices tubulo, desinens, duobus aculeorum ordinibus, obliquè sursum tendentibus, rectorum aspero septeno etiam numero. Colore ex albo pallente, ut Vulgaris; Rugis minimis verò et crispis tota Testa obducta. Habitu verò vulgari adsimilis. Marmoreæ alterius Pelagiæ testæ effigies ab illâ, crassitie, et magnitudine admodum distat, marmorea fere specie: tribus aculeorum magnorum ordinibus, trigonæ, circuli sectione dispositis, quorum Major ordo et crassior in margine oris, alter minor ex opposito, tertius minimus in parte posteriore; non desunt alii intermedii, ut septem numero orbem majorem impleant, ut in Purpura; Differunt aculei crassitie insigni, curitate, ac etiam quia cavi, et rudes appareant. Rostro est recurvo depresso lato admodum, brevi, respectu Purpuræ vulgaris, rugoso, ac illi in claviculæ parte, vetustius hærens rostrum, umbilicum formantem in imo. Oris margo undosâ lineâ terminatur, nec alterâ parte elato limbo aurito, ut in Purpuris aliis observantur: dodrantem æquat longitudime; Romæ habuimus hujus anni initio, cum aliis rarioribus, striis et habitu in reliquis parum differt. Huic congeneres umbilicatas, eodem modo rostratas, sed minores, longis aculeis, verum tuberculis eodem modo dispositis variantes, servamus. His deinde accedunt Purpuræ species aliæ majores, sed tantum aculeorum vice taberosas, intus flavas, oris margine in columella aurito magno et elato: rostro longo et tuberculis circum ornato, ut in Purpuris Rondeletii, striis obliquè densis ac per longum, limbis crispis, oris elatis septenis, tuberculos aculeorum vice parum infra crispa, ore elatiore limbi, dorso proferentibus; Reliquis, cum Purpura sit, non differt, duplo major vulgari_: Hucusque Autor. Cogor fateri, me ipsum haud æquè in hoc dato _Columnæ_ capite omnia posse assequi. Sed hoc debetur festinanti calamo transcriptoris, cui olim, ut mihi transcriberet, mandavi, vitiosè notanti aliqua; quod nunc demum observavi, _Autore_ ipso, quem conferre voluissem, destitutus.
+_Non nescimus, Plinium Muricer pro Buccinis, i. e. κήρυκες Aristotelis, usurpasse, dum ait: Purpuræ vivunt annis plurimum septenis, latent sicut Murices circa Canis ortum, tricenis diebus, etc. Quæ Aristoteles ita Græcè dixit, τὰ μὲν γὰρ ὀστρακόδερμα παντα φωλεῖ, ὁιον τάτε ἐν τῇ θαλάττῃ πορφύραι, καὶ κήρυκες. Et alibi Purpuram et Buccinum ad tincturæ usum aptas recenset, dum ait: Concharum ad purpuras et Conchylia eadem quidem est materia etc. Buccinum ore rotundo margine tantum incisa, et Purpuram clavatam et rostratam, aculeis in orbem septenis, qui non sunt in Buccino. Et alibi, Muricis nomen, tanquam genus turbinatorum accepisse, dum firmiores testas esse asserit, quàm Pectines. Et alibi muricem appellasse Concham, utroque latere se colligentem, quæ Mutiani Echeneis est. Et alibi: Muricum generis sunt, quæ Græci vocant Colycia, alii Corythia, turbinata æquè, sed minora multo. Nos legeremus κηρυκεῖα, à Verbo κήρυξ, eo magis, quod æquè turbinata, sed minora esse, idem referat, Buccini species parvas forsan intelligens: Carychia reponentes. Et alibi, omnia Maris animalia recensens, Muricem nominat et, Buccinum omisit, Purpuram suo loco referens. Quamobrem suspicari non parum possumus, et forsan asserere, nil aliud muricem esse apud Plinium, quàm Buccini Synonymum; et turbinati genus ad Tincturæ usum, vel Buccini effigie. At retenta Muricum derivatiane ab aculeis, quibus exasperantur, ad differentiam Purpurarum, quæ etiam sunt muricatæ: reliqua testaceorum turbinatorum intelligamus, quæ muricata sint, alio quam Purpuræ modo; ut scilicet triplici ordine Trigono Tribuli modo, quoque versu reposita, elatis sursum aculeis infesta, non in orbem, ut in Purpurâ. Vel non recedentes â Rondeletio, reliqua testacea grandiora tuberculis vel aculeis aliquo modo infesta, nec longo rostro ut Purpura, sed illo carentia. Quam autem Purpuram intelligamus à Plinio descriptam, illam dicimus esse, sed littoralem à Doctissimo Rondeletio depictam; quam Neapolitani Sconciglio appellant, mensis expetitam, et piscatorio foro quotidianam; cujus Species plures observavimus, Magnitudine, colore, atque aculeis variantes. Rariorem hanc Exoticam, Pelagiæ testæ speciem, Romæ habuimus adhuc invisam, quæ littorales nostrates quadruplo superat, decem pollices longa, et quatuor superans diametro, remisso turbine, tribus anfractibus contorto, ventriosa, ore circa columellam aurito, pari limbo elato et lato, oris orbem alterâ parte adimplens, strias per longum orbis divisas, ut vulgaris, habens, in quibus magni admodum et tres pollices æquantes aliqui contorti aculei sunt, eodem numero, contrario modo recurvi, et ideo Corniculatam appellavimus. In summo longo quinque pollices tubulo, desinens, duobus aculeorum ordinibus, obliquè sursum tendentibus, rectorum aspero septeno etiam numero. Colore ex albo pallente, ut Vulgaris; Rugis minimis verò et crispis tota Testa obducta. Habitu verò vulgari adsimilis. Marmoreæ alterius Pelagiæ testæ effigies ab illâ, crassitie, et magnitudine admodum distat, marmorea fere specie: tribus aculeorum magnorum ordinibus, trigonæ, circuli sectione dispositis, quorum Major ordo et crassior in margine oris, alter minor ex opposito, tertius minimus in parte posteriore; non desunt alii intermedii, ut septem numero orbem majorem impleant, ut in Purpura; Differunt aculei crassitie insigni, curitate, ac etiam quia cavi, et rudes appareant. Rostro est recurvo depresso lato admodum, brevi, respectu Purpuræ vulgaris, rugoso, ac illi in claviculæ parte, vetustius hærens rostrum, umbilicum formantem in imo. Oris margo undosâ lineâ terminatur, nec alterâ parte elato limbo aurito, ut in Purpuris aliis observantur: dodrantem æquat longitudime; Romæ habuimus hujus anni initio, cum aliis rarioribus, striis et habitu in reliquis parum differt. Huic congeneres umbilicatas, eodem modo rostratas, sed minores, longis aculeis, verum tuberculis eodem modo dispositis variantes, servamus. His deinde accedunt Purpuræ species aliæ majores, sed tantum aculeorum vice taberosas, intus flavas, oris margine in columella aurito magno et elato: rostro longo et tuberculis circum ornato, ut in Purpuris Rondeletii, striis obliquè densis ac per longum, limbis crispis, oris elatis septenis, tuberculos aculeorum vice parum infra crispa, ore elatiore limbi, dorso proferentibus; Reliquis, cum Purpura sit, non differt, duplo major vulgari_: Hucusque Autor. Cogor fateri, me ipsum haud æquè in hoc dato _Columnæ_ capite omnia posse assequi. Sed hoc debetur festinanti calamo transcriptoris, cui olim, ut mihi transcriberet, mandavi, vitiosè notanti aliqua; quod nunc demum observavi, _Autore_ ipso, quem conferre voluissem, destitutus.
 
 §\. 8. Istam jam Magnitudinum differentiam sicut diversitati et Copiæ Alimentorum, indolique Locorum deberi (non exclusis veruntamen Causis aliis,) initio Paragraphi præcedentis dictum est: ita priusquam de _Augmentatione_, _Nutritionis_ asseclâ, discedamus, et transeamus ad _Actiones Purpurarum_ reliquas; placet de _Loco Natali_ earum quædam inspergere, ne hoc etiam comma negligentiùs transsiliisse videamur.
 
@@ -1320,7 +1320,7 @@ In Purpurâ sanè _Longitudo_ Linguæ planè Digitalis tribuitur ex _Plinio_, li
 
 §\. 17. _Ventriculum_ verò etiam vel _Stomachum_, cujus jam paulò antè (§. 7.) mentionem brevem ingessimus, quique faucibus ferè contiguus est, cum appendicibus depingit (nisi modò in Anatome valentiùs illum expanderit) Idem, quem dixi, _Severinus_: ac _Mesenterium_ prætereà illis tribuit, simile Lacertæ vulgaris. Fides sit penes Autorem.
 
-§\. 18. Item _Cor_, quod Ervi magnitudine sit, ipsi adscribunt Zoologi aliqui; quod alii contra habent pro _Hepate_, dicuntque viscidulum esse, lentore tenaci præditum; et _Papaver_, Græcè [GREEK], ab _Aristotele_ vocari, ad cujus latus Purpureus Mucus appareat. Est Palato gratius Carne, aut reliquis Purpuræ partibus. Scripsitque _Athenæus_, citante _Jonstono_, copiosiùs alere: at magis etiam Scillam sapere. Imò _Wormius_ Autor est, si quis copiosiùs eo utatur, Bilem Nauseamque procreare, atrique humoris copiam. etc.
+§\. 18. Item _Cor_, quod Ervi magnitudine sit, ipsi adscribunt Zoologi aliqui; quod alii contra habent pro _Hepate_, dicuntque viscidulum esse, lentore tenaci præditum; et _Papaver_, Græcè Μήκων, ab _Aristotele_ vocari, ad cujus latus Purpureus Mucus appareat. Est Palato gratius Carne, aut reliquis Purpuræ partibus. Scripsitque _Athenæus_, citante _Jonstono_, copiosiùs alere: at magis etiam Scillam sapere. Imò _Wormius_ Autor est, si quis copiosiùs eo utatur, Bilem Nauseamque procreare, atrique humoris copiam. etc.
 
 §\. 19. De _Venâ_ verò agetur inferiùs, in eâ ad _Columnam_ Annotatione, ubi de Porphyropœiâ, vel Purpurificio, sermo instituetur. Deque _Sanguine_, Succo, vel Muco Purpureo ibidem tractabitur.
 
@@ -1368,7 +1368,7 @@ In Purpurâ sanè _Longitudo_ Linguæ planè Digitalis tribuitur ex _Plinio_, li
 
 §\. 11. _Ipsa Confectio Ostri_ dein sic fiebat, præeunte iterum nobis _Nierembergio_: Coquebatur Sanguis cum Venâ, priùs aperta, in Vasis vel Lebetibus plumbeis, (adjectâ tamen Aquâ) modico vapore, et longinquæ _Fornacis_ cuniculo, (aut moderato Ignis gradu) Inde splendidus ille, et quasi intermedius inter Rubrum et Nigrum, Color eliciebatur, qui Caryophylli est. Deque _Purpuræ Fornace_ jam-dictâ confer _Libavium_ Vol. 2. Alchem. part. 1. pag. 161. Nec _Despumatio_ lenis ab hoc ipso Porphyropœias molimine est excludenda; præsertim si Calor fortè intensior fuerit.
 
-§\. 12. _Præparationi demum successit_, proximè quidem ipsa applicatio Purpuræ ad tingendum, videl. Pannorum, Lanæ, aut Serici in eandem _Immersio_; longiùs verò aut longissimè, _Nota Probitatis_, quæ in duobus quæsita est: 1. ut Maculam non relinqueret; ita enim _Nierembergius_: _In Italiâ_, inquit, _discernunt veram à nothâ, per Oleum, Filo Serici Purpureo affusum. Si enim relinquat Maculam, Notha judicatur; sin minùs, Legitima_. 2. ut diu Durabilis esset, et perennaret. Purpurâ enim infectæ Vestes, si _Barthio_ (lib. 22. Adversar. cap. 20. init.) credimus, nequaquam elui poterant. Quorsum trahit Locum _Esaiæ_ cap. 1: [GREEK]: quasi illud alioqui factu sit impossibile.
+§\. 12. _Præparationi demum successit_, proximè quidem ipsa applicatio Purpuræ ad tingendum, videl. Pannorum, Lanæ, aut Serici in eandem _Immersio_; longiùs verò aut longissimè, _Nota Probitatis_, quæ in duobus quæsita est: 1. ut Maculam non relinqueret; ita enim _Nierembergius_: _In Italiâ_, inquit, _discernunt veram à nothâ, per Oleum, Filo Serici Purpureo affusum. Si enim relinquat Maculam, Notha judicatur; sin minùs, Legitima_. 2. ut diu Durabilis esset, et perennaret. Purpurâ enim infectæ Vestes, si _Barthio_ (lib. 22. Adversar. cap. 20. init.) credimus, nequaquam elui poterant. Quorsum trahit Locum _Esaiæ_ cap. 1: Καὶ ἐαν ἁι ἀμαρτίαι ὑμῶν, ὡς φοινικῶν ὡς χιόνα λευκανῶ: quasi illud alioqui factu sit impossibile.
 
 §\. 13. 4. de _Purpuræ_ tandem _Dignitate_, _Usu_, et _Abusu_ annecti possent multa: Sed tempus aliquando est, in Negocio circa Caput 1. _Columnæ_, Vela verborum contrahere, et residuam hanc partem doctrinæ evolvere parciore manu.
 
@@ -1388,7 +1388,7 @@ In Purpurâ sanè _Longitudo_ Linguæ planè Digitalis tribuitur ex _Plinio_, li
 
 §\. 21. Nec aliud sibi vult vox _Inchiostro_ apud Italos, denotans quidem _Atramentum_, quo communiter scribimus; sed corruptim certissimè est ex _Encausti_ voculâ enatum. Et de _Chalcographorum Encausto_ sic scribit diligentissimus _Sachsius_: (Ampelogr. lib. 2. sect. 9. cap. 1. p. 582:) _Refert Baccius, de Vino lib. 1. c. 21. ex Fæce Vini combustâ fieri Romæ Encausti genus, dum exsiccatas Fæcis placentulas comburunt, donec inflammentur in totum, subinde in Aquam conjicientes, unde albicantem supernè cinerulam abluant; reliquum, exstincti Carbonis instar, contundant, molantque cum Porphyrite Lapide, ac cum oleo nigrum malaxantes, parent Encaustum optimum, ad Tabulas æneas exprimendas_.
 
-§\. 22. Sed hæc de Encausto quasi obiter, occasione _Purpuræ in Libris_. Imò _Sacro_ etiam _Cultu_ quasi affectam Purpuram, licet colligere ex Carmine Veterum; quorum aliqui _Junonem, Venerem_ alii, vel ipsam etiam _Proserpinam_ Purpurâ indutam (in Versu, in quo quidvis licet, quod libet) concelebrarunt. Vel citra Poëma etiam, _Trabéa_ ([GREEK]) Vestis purpurea dicta est, quæ vel Diis sacrabatur; vel Deorum Vicariis placuit; Regibus nempe, ut antè-dictum. De quâ Voce distinctiùs agitur in Thesauro Latinitatis, _Clar. Viri, Andr. Reyheri._ Deque _Purpurâ_ tam _Mortuorum_, quàm Mortuos _Lugentium_, videri potest _Kirchmannus_, de Funeribus Romanorum.
+§\. 22. Sed hæc de Encausto quasi obiter, occasione _Purpuræ in Libris_. Imò _Sacro_ etiam _Cultu_ quasi affectam Purpuram, licet colligere ex Carmine Veterum; quorum aliqui _Junonem, Venerem_ alii, vel ipsam etiam _Proserpinam_ Purpurâ indutam (in Versu, in quo quidvis licet, quod libet) concelebrarunt. Vel citra Poëma etiam, _Trabéa_ (τραβαῖα) Vestis purpurea dicta est, quæ vel Diis sacrabatur; vel Deorum Vicariis placuit; Regibus nempe, ut antè-dictum. De quâ Voce distinctiùs agitur in Thesauro Latinitatis, _Clar. Viri, Andr. Reyheri._ Deque _Purpurâ_ tam _Mortuorum_, quàm Mortuos _Lugentium_, videri potest _Kirchmannus_, de Funeribus Romanorum.
 
 §\. 23. Et jàm pro declaratione Expositionevè Capitis l. de Purpurâ Autoris nostri, _Columnæ_, restat ampliùs nil, quàm ut _Abusum_ etiam _Purpuræ_ aliquem, lineolis duabus tribus intimemus. Quem duplicem facio: _Luxuriosum_ unum; _Contumeliosum_ alterum.
 
@@ -1452,7 +1452,7 @@ Ad differentias Testaceorum à Summo aliquo Genere, ad omnium ima exempla, vel S
 
 [_referenda ad Annotat. 9. §. 4. in Columnæ Librum de Purpurâ._]
 
-Testæ vox, prout Naturalibus Rebus tribuitur, et inde TESTACEA Animalia, (Græcè [GREEK]) dicunter vel
+Testæ vox, prout Naturalibus Rebus tribuitur, et inde TESTACEA Animalia, (Græcè Ὀστρακόδερμα) dicunter vel
 
 1\. Impropriè, de Rebus, spectantibus ad
 
@@ -1500,9 +1500,9 @@ Certi ac determinati: de quo vid. TAB. 3.
 
 Testacea Certi generis, dividuntur in
 
-Univalvia ([GREEK]) Orificii
+Univalvia (Μονόθυρα) Orificii
 
-[Et Plurivalvia, ([GREEK]) vid. TAB. 10.]
+[Et Plurivalvia, (Πολύθυρα) vid. TAB. 10.]
 
 liberè patentis in
 
@@ -1510,7 +1510,7 @@ liberè patentis in
 
 Longitudinem,
 
-[GREEK], _Penicilli Marini_: nisi potiùs ad Tubulos Vermium, TAB. 1. notatos, pertineant.
+Παραλλήλως, _Penicilli Marini_: nisi potiùs ad Tubulos Vermium, TAB. 1. notatos, pertineant.
 
 Pyramidaliter, _Dentalia_.
 
@@ -1520,7 +1520,7 @@ _Lepades_ vel _Patellæ_, à patendo dictæ: quæ vel
 
 [Concha Natatilis: vid. Tab. 4.]
 
-veræ, et [GREEK] _Lepades_ (speciei multiplicis) partim
+veræ, et κατ ᾽ ἐξοχὴν _Lepades_ (speciei multiplicis) partim
 
 Mediocres: e. g. _Lepas Exotica variegata Column._ de Purp. c. 6.
 
@@ -1552,7 +1552,7 @@ Latitudinem:
 
 _Lepades_
 
-_Concha Natatilis_ [GREEK] _minima, Persicæ dictæ Recentiorum congener, Column. de Purp. c. 18._
+_Concha Natatilis_ Νηριτώδης _minima, Persicæ dictæ Recentiorum congener, Column. de Purp. c. 18._
 
 [Figura]()
 
@@ -1774,7 +1774,7 @@ non prominente multùm, quin compactiore, superficiei externæ
 
 Inæqualis
 
-Rugoso-Striatæ: e. g. _Concha Natatilis_ [GREEK] _Column. de Purp. c. 18. §. 5._
+Rugoso-Striatæ: e. g. _Concha Natatilis_ Νηριτώδης _Column. de Purp. c. 18. §. 5._
 
 [Figura]()
 
@@ -1782,7 +1782,7 @@ Striatæ.
 
 Æqualis, vel Glabræ.
 
-distinctiùs emisso: e. g. _Concha Natatilis_ [GREEK] _altera Column. l. d._
+distinctiùs emisso: e. g. _Concha Natatilis_ Νηριτώδης _altera Column. l. d._
 
 [Figura]()
 
@@ -1790,7 +1790,7 @@ distinctiùs emisso: e. g. _Concha Natatilis_ [GREEK] _altera Column. l. d._
 
 [_Refer ad Tab. 3. et ad Annotat. in Columnæ de Purp. c. 11._]
 
-Testacea Plurivalvia ([GREEK]) sunt vel
+Testacea Plurivalvia (Πολύθυρα) sunt vel
 
 α\.
 
@@ -1846,7 +1846,7 @@ duplicem:
 
 triplicem.
 
-quadruplicem: qualis esse videtur _Concha_ [GREEK] _Column de Purp. cap. 11._
+quadruplicem: qualis esse videtur _Concha_ Πολυλεπτογίγγλυμος _Column de Purp. cap. 11._
 
 [Figura]()
 
