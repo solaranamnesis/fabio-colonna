@@ -674,9 +674,9 @@ _vel pro Succo præsertim aut Sanguine Animalculi jam-dicti_, Tincturæ Regalis 
 
 5\. Vel ex Hebræo פׇרַר _Separavit, dijunxit_, vel פׇּרַץ _Rupit, Effregit_; quod Testa Purpuræ Animalis, ad Succum preciosisimum obtinendum, frangenda priùs fuerit: quæ originatio utcunque speciosior videtur, sed incerta; cum multa alia, imò fere innumera, Corpora æquè Fragilia aut Ruptilia sint, quæ exiguam admodùm cum Purpurâ familiaritatem habent: et videtur item Allusio tantùm quædam esse, ad Radicales Hebraicæ Vocis literas פ et ר, quàm vera Originatio.
 
-§\. 7. Quin potiùs quando habemus Fontem manifestissimum alium, quid ullos obscuriores laboriosè insectemur? Quod enim [GREEK] Græcis, id ad amussim velut, Latinis _Purpura_ dicitur: et Derivata utrobivis perspicuè conspirant: _1._ _Purpuro_, [GREEK], h. e. purpureo Colore tingo, vel facio, ut aliquid Purpuræ in modum effulgeat; Vox veteris Poëtæ, quam probat _Gellius_, lib. 18. c. 2. versum hunc adducens:
+§\. 7. Quin potiùs quando habemus Fontem manifestissimum alium, quid ullos obscuriores laboriosè insectemur? Quod enim Πορφύρα Græcis, id ad amussim velut, Latinis _Purpura_ dicitur: et Derivata utrobivis perspicuè conspirant: _1._ _Purpuro_, Πορφύρω, h. e. purpureo Colore tingo, vel facio, ut aliquid Purpuræ in modum effulgeat; Vox veteris Poëtæ, quam probat _Gellius_, lib. 18. c. 2. versum hunc adducens:
 
-_Spiritus Eurorii virides cum purpurat Undas_. Inde _2._ _Purpurati_ Patres, qui Purpuram gestabant; Reges, Principes, Senatores Romani, aut hodie Cardinales. _3._ _Purpurarii_: qui erant tàm Infectores, quàm Negociatores. Et Infectores præsertim quales homines fuerint, quæque eorum Officinæ ac Fraudes, _Autor_ ipse _noster_, in capitis hujus §. 37. et 38. explicat. Diciturque Græcè [GREEK], Purpuræ Venditrix. _4._ _Purpureus_, _a_, _um_, [GREEK], [GREEK], i. e. Ruber, puniceus, florens, ac roseus. Unde Juvenile decus Genarum _Virgilius_ 1. _Æn. v. 594._ his verbis describit:
+_Spiritus Eurorii virides cum purpurat Undas_. Inde _2._ _Purpurati_ Patres, qui Purpuram gestabant; Reges, Principes, Senatores Romani, aut hodie Cardinales. _3._ _Purpurarii_: qui erant tàm Infectores, quàm Negociatores. Et Infectores præsertim quales homines fuerint, quæque eorum Officinæ ac Fraudes, _Autor_ ipse _noster_, in capitis hujus §. 37. et 38. explicat. Diciturque Græcè Πορφυρόπωλις, Purpuræ Venditrix. _4._ _Purpureus_, _a_, _um_, Πορφύρεος, ον, i. e. Ruber, puniceus, florens, ac roseus. Unde Juvenile decus Genarum _Virgilius_ 1. _Æn. v. 594._ his verbis describit:
 
 --- --- _Lumenque Juventæ_  
 _Purpureum, et lætos oculis afflarat honores_.
@@ -687,7 +687,7 @@ _In Mare Purpureum violentior influit Amnis;_
 
 id citra Tralationem etiam dicere poterat, respectu Imaginis Auroræ, purpureo schemate ex superficie Aquarum ad Oculum reflexæ.
 
-§\. 9. _5._ _Purpurina_, Pigmenti genus; de quo distinctiùs paucula, ad præsentis Capitis §. 24. notabo. _6._ _Purpurissa_, _Purpurissum_, (à [GREEK], in purpureum colorem vergo:) simile Pigmenti genus; de quo ibidem. et _7._ _Purpurites_, [GREEK], lapis, inter Marmora rubra principatum obtinens, columnis, mortariis, ac aliis rebus, violentiæ obnoxiis, parandis aptus: de quo vide _Ol. Wormium_ libr. 2. Mus. Sect. 2. cap. 4. pag. 44: sed diversus â _Purpurite_ seu Purpurâ lapidescente, argenteis Maculis adspersâ, quam in effigie nobis exhibet Musèum Metallicum _Aldrovandi_ lib. 1. cap. 3. pag. 89.
+§\. 9. _5._ _Purpurina_, Pigmenti genus; de quo distinctiùs paucula, ad præsentis Capitis §. 24. notabo. _6._ _Purpurissa_, _Purpurissum_, (à πορφυρίζω, in purpureum colorem vergo:) simile Pigmenti genus; de quo ibidem. et _7._ _Purpurites_, Πορφυρίτης, lapis, inter Marmora rubra principatum obtinens, columnis, mortariis, ac aliis rebus, violentiæ obnoxiis, parandis aptus: de quo vide _Ol. Wormium_ libr. 2. Mus. Sect. 2. cap. 4. pag. 44: sed diversus â _Purpurite_ seu Purpurâ lapidescente, argenteis Maculis adspersâ, quam in effigie nobis exhibet Musèum Metallicum _Aldrovandi_ lib. 1. cap. 3. pag. 89.
 
 ## Annotatio 3.
 
