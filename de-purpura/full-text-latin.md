@@ -265,9 +265,9 @@ qui alibi à _Plinio_ Austerus Color in Glauco, et irascenti similis Mari dicitu
 
 *) _lib. 6. de Dorycnio._
 
-§\. 16. Nec minùs quàm alii hoc loco _Dioscoridem_ Conchylium pro genere Concharum sive Turbinatorum usurpasse censemus, ut ex Ipsius historiâ liquet, et alibi etiam, cum inquit: [GREEK]: _Et omnia Conchylia, cruda, quàm tosta comesa_ etc.
+§\. 16. Nec minùs quàm alii hoc loco _Dioscoridem_ Conchylium pro genere Concharum sive Turbinatorum usurpasse censemus, ut ex Ipsius historiâ liquet, et alibi etiam, cum inquit: καὶ πάντα τὰ Κογχύλια ὠμὰ καὶ ὄπτα ἐθιόμενα, καὶ κάραβοι: _Et omnia Conchylia, cruda, quàm tosta comesa_ etc.
 
-§\. 17. Adde, Lacustres Conchas, sive Turbines, ad Tincturam aptas, nemo Antiquorum prodidit. Quare differre à marinis Infectoriis patet, sicut generis esse nomen. Non mirum igitur, si _Onychem_ eandem à _Plinio_ Ostracium dictam invenimus; Græco forsan more, ex Verbo _Ostracea_, quod universa Testacea complectitur, [GREEK] deductum: sicut _Ostrum_ dici Purpureum colorem, à Testis Marinis latinè, ex _Vitruvio_ jam retulimus. Easdem Vires crematis Operculis palustris Conchylii _Dioscorides_ reliquis marinis Purpuris tribuit.
+§\. 17. Adde, Lacustres Conchas, sive Turbines, ad Tincturam aptas, nemo Antiquorum prodidit. Quare differre à marinis Infectoriis patet, sicut generis esse nomen. Non mirum igitur, si _Onychem_ eandem à _Plinio_ Ostracium dictam invenimus; Græco forsan more, ex Verbo _Ostracea_, quod universa Testacea complectitur, ἀπὸ τοῦ ὀστρακοῦ deductum: sicut _Ostrum_ dici Purpureum colorem, à Testis Marinis latinè, ex _Vitruvio_ jam retulimus. Easdem Vires crematis Operculis palustris Conchylii _Dioscorides_ reliquis marinis Purpuris tribuit.
 
 §\. 18. Sic etiam malè intellectus _Plinii_ Sensus in Textu adducto ab iisdem dici potest, ibi*: _Et per se Conchylio infecta Lana magnopere prodest_; Aurium scilicet malis; ut etiam apud _Galenum_: [GREEK], sive [GREEK]. Et apud _Dioscoridem_, [GREEK], _Eodem_, scilicet, _modo uruntur Lanæ, marinâ Purpurâ infectæ_, sive _Lanæ flocci_. Illud [GREEK] idem cum Lanâ Conchylio infectâ _Plinii_.
 
