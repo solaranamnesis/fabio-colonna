@@ -488,7 +488,7 @@ Est et alter, simili modo ex sinistrâ parte in dexteram convolutus, non adeò f
 
 # Caput 12. --- _Concha rarior Anomia, Vertice rostrato_.
 
-§\. 1. Anomias Conchas illas esse dicimus, quarum altera pars cohærens aliquo modo, ab alterâ, Effigie aut magnitudine, aut utroque modo differat. [GREEK] siquidem contrarium est Verbi [GREEK], quod est, _Similis, Par, Æqualis_; scilicet _Dissimilis, Impar, Inæqualis_. Ideò inter cæteras notas à _Plinio_* memoratas, quibus Concharum varietates distinguit, plurimas, cum Inæqualitatis Notam non invenerimus, Anomias Conchas appellare libuit; vel _Plinii_ more illas, _Vertice Rostrato_ dicere; quarum etiam Differentiæ sunt plures.
+§\. 1. Anomias Conchas illas esse dicimus, quarum altera pars cohærens aliquo modo, ab alterâ, Effigie aut magnitudine, aut utroque modo differat. Ἀνόμιος siquidem contrarium est Verbi ὅμοιος, quod est, _Similis, Par, Æqualis_; scilicet _Dissimilis, Impar, Inæqualis_. Ideò inter cæteras notas à _Plinio_* memoratas, quibus Concharum varietates distinguit, plurimas, cum Inæqualitatis Notam non invenerimus, Anomias Conchas appellare libuit; vel _Plinii_ more illas, _Vertice Rostrato_ dicere; quarum etiam Differentiæ sunt plures.
 
 *) _Loco antè-cit._
 
