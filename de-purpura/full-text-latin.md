@@ -2260,7 +2260,7 @@ _Pyxis_: Concavitas cavernulæ, in crassiore Testarum parte, e. g. _Col._ de Pur
 
 **R\.**
 
-_Rhabdus_: ([GREEK]) Virga, Linea, Stria: unde [GREEK], virgatus; et inter Ostrea quædam [GREEK] vocantur, quasi dicas Virgata, vel pectinatim divisa, aut Striata: et _Fabius Columna_, Concham suam Exoticam mucronatam, eo quod Striis eminentibus, in mucrones exeuntibus ornatur, [GREEK] appellari posse ait: de Purp. c. 17. §. 3. Confer etiam _Annotat._ 10. §. 4.
+_Rhabdus_: (ὀ ῥαβδος) Virga, Linea, Stria: unde ῥαβδωτός, virgatus; et inter Ostrea quædam ῥαβδωτὰ vocantur, quasi dicas Virgata, vel pectinatim divisa, aut Striata: et _Fabius Columna_, Concham suam Exoticam mucronatam, eo quod Striis eminentibus, in mucrones exeuntibus ornatur, μαχαιροραβδώτην appellari posse ait: de Purp. c. 17. §. 3. Confer etiam _Annotat._ 10. §. 4.
 
 _Rima_: 1. in aliquibus Apertura totius Testæ Strictior, e. g. in Conchâ Venereà, et Conchâ utroque latere se colligente _Col._ de Purp. c. 20: _Rimam pro Ore habet lævem_. Icon est hæc:
 
@@ -2274,7 +2274,7 @@ _Rostrum_: 1. In Univalvibus, Productio Orificii Testæ, plûsminûs longa, rect
 
 3\. Rostra in iisdem Bivalvibus dicuntur prætereà acutæ Cuspides aut Mucrones, quibus Limbus Conchæ Exoticæ exasperatur, descriptus â _Columnâ_ de Purp. cap. 17. §. 1.
 
-_Rugæ_: Eminentiæ Testaceorum in oblongum productæ, latiores, et velut Undæ, aut strictiores; profundiores, aut superficiales; obliquè, aut rectà ductæ; densiùs compactæ, aut laxiùs à se distantes; molliores (in Carne quorundam) aut duræ præsertim, in Testis multis conspicuæ, e. g. Chamarum, Pectinum, Cochlearum, Turbinum quorundam, nostræ Purpuræ, ac similium. Ita enim _Column._ c. 10. §. 4. de Cochleâ Marinâ Exoticâ: _Rugis obliquè profundioribus, ut quodammodo aspera sit tangenti._ Et cap. 2. §. 3. de Conchâ [GREEK]: _Obliquis densioribus Rugis exasperata._ Et cap. 12. §. 3. de Conchâ Anomiâ Rariore: _Concha parva est, --- obliquè parum additamentis Rugosa, sed non ob id aspera, sed lævis._ Icon inferiùs relata exstat sub Voce _Vertex_.
+_Rugæ_: Eminentiæ Testaceorum in oblongum productæ, latiores, et velut Undæ, aut strictiores; profundiores, aut superficiales; obliquè, aut rectà ductæ; densiùs compactæ, aut laxiùs à se distantes; molliores (in Carne quorundam) aut duræ præsertim, in Testis multis conspicuæ, e. g. Chamarum, Pectinum, Cochlearum, Turbinum quorundam, nostræ Purpuræ, ac similium. Ita enim _Column._ c. 10. §. 4. de Cochleâ Marinâ Exoticâ: _Rugis obliquè profundioribus, ut quodammodo aspera sit tangenti._ Et cap. 2. §. 3. de Conchâ Πολυλεπτογίγγλύμῳ: _Obliquis densioribus Rugis exasperata._ Et cap. 12. §. 3. de Conchâ Anomiâ Rariore: _Concha parva est, --- obliquè parum additamentis Rugosa, sed non ob id aspera, sed lævis._ Icon inferiùs relata exstat sub Voce _Vertex_.
 
 **S\.**
 
@@ -2303,7 +2303,7 @@ _Striæ_: Eminentiæ strictæ, sed in longum rectà aut obliquè, (per Convexum 
 
 [Figura]()
 
-laxius disposiiæ, aut densiùs, ut in Conchâ [GREEK] _Col._ c. 11. §. 3: _Externè admodùm densè Striata._ (Testa.)
+laxius disposiiæ, aut densiùs, ut in Conchâ Πολυλεπτογίγγλύμῳ _Col._ c. 11. §. 3: _Externè admodùm densè Striata._ (Testa.)
 
 _Striges_: Interstitia forsan depressiora ac plana Striarum eminentium, in Conchâ alterâ Anomiâ Striatâ _Column._ de Purp. c. 15. §. 1: _Senis Striis, totidemque Strigibus in singulis lobis, quibus margines denticulatæ fiunt_. Icon est talis, ibi exstans:
 
@@ -2321,11 +2321,11 @@ _Sutura_: Inscriptio, aut Linea profundior Testæ, ipsam apparenter magis, quàm
 
 **T\.**
 
-_Testa_: Durior pars Testaceorum, vel [GREEK], per quam, forinsecus ipsis obnatam à Natitilibus teliquis, crustâ, pelle, membranuláve vestitis, distinguuntur: inserviens ipsis tam habitaculi, quàm munimenti loco. Et peculiariter de Purpuræ Testâ, hujusque partibus fusè est actum suprà, _Annotat._ 9. totâ. Cui adde verba _Autoris_ hæc, ex Præfatione: _Neminem ipsa Testis inhabitantia Animalia_ (Purpuram exhibentia) _considerasse, mirum sanè videri potest._ Et mox: _Exponere híc voluimus Purpuram, Testas simul, ipsaque Animalia in Physicam Contemplationem adducentes._ Et in ipsius Tractatûs Cap. 1. §. 7: _Testæ, Græcè [GREEK], ex [GREEK], quod est Os, quia Ossium sit duritie Marina Concha._ Jam verò de voce Ostri, Ostracei, etc. ex professo actum vide _Annot._ 3. et de Voce Conchylii, _Annotat._ 4.
+_Testa_: Durior pars Testaceorum, vel ὀστρακοδέρμων, per quam, forinsecus ipsis obnatam à Natitilibus teliquis, crustâ, pelle, membranuláve vestitis, distinguuntur: inserviens ipsis tam habitaculi, quàm munimenti loco. Et peculiariter de Purpuræ Testâ, hujusque partibus fusè est actum suprà, _Annotat._ 9. totâ. Cui adde verba _Autoris_ hæc, ex Præfatione: _Neminem ipsa Testis inhabitantia Animalia_ (Purpuram exhibentia) _considerasse, mirum sanè videri potest._ Et mox: _Exponere híc voluimus Purpuram, Testas simul, ipsaque Animalia in Physicam Contemplationem adducentes._ Et in ipsius Tractatûs Cap. 1. §. 7: _Testæ, Græcè ὄστρεα, ex ὀστέον, quod est Os, quia Ossium sit duritie Marina Concha._ Jam verò de voce Ostri, Ostracei, etc. ex professo actum vide _Annot._ 3. et de Voce Conchylii, _Annotat._ 4.
 
 _Testulæ Testarum_: de his in _Annotatione_ 10. §. 7 et seq; pertractatum est.
 
-_Trachàlum_: Græcè [GREEK]. Muricum vel acutorum processuum in Testis summitates. Deque Voce hâc pluribus actum est in _Annotationis_ 9. §. 14.
+_Trachàlum_: Græcè Τράχηλον. Muricum vel acutorum processuum in Testis summitates. Deque Voce hâc pluribus actum est in _Annotationis_ 9. §. 14.
 
 _Tubera, Tubercula, Tuberositates_: Eminentiæ subrotundæ, breves in Testis, Colliculorum instar, obtuso modo elatæ. _Column._ de Purp. c. 1. §. 27: _Illorum_ (Muricum) _vice brevioribus et crassioribus horret tuberculis._ Et cap. 5. §. 1. de Buccino Exotico parvo: _Tuberculis nigro-flaventibus, et Lineis elatis candida Testa exornatur._
 
