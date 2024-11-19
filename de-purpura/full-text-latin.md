@@ -1874,7 +1874,7 @@ enormiter magnæ: e. g. _Ostrea Indica, Gottorpium translata_, 8. pedum in ambit
 
 Imparis Latitudinis, ita, ut majoris unius vertex superemineat minori alteri, illamque quasi in se recipiat, dictæ apud _Columnā Anomiæ_, vel irregulares; _de Purp. cap. 12. 13. 14. 15._ Quarum aliæ sunt Vertice
 
-Imperforato: _Concha Anomia altera Striata_ [GREEK] _rarior, Column. c. 15._
+Imperforato: _Concha Anomia altera Striata_ Τρίλοβος _rarior, Column. c. 15._
 
 γ\.
 
@@ -1976,7 +1976,7 @@ _Canales, Canaliculi_: Longiusculi, stricti, et concavi Processus Testarum, _Tub
 
 _Caput_: 1. Anterior pars Carnosæ Cochlearum, Turbinatorumque aliorum Substantiæ, quâ lambendo corpora alia, in eorum superficie se firmant, loco per eandem moventur, et post leves attactus extraneos, nunc retrahunt se intra Testam, nunc iterum se proserunt. 2. Summitas angusta testæ. _Column._ de Purp. cap. 15. §. 1: _Alterâ parte, quâ Valvæ it caput prominet_.
 
-_Cardines_: Concavo-convexæ Bivalvium Portiones, in parte crassiore Concharum suarum, quâ conjunguntur, et mutuò sibi inarticulantur, more Cardinum, in Januâ Ædificii. Conferatur _Ginglymus. Column._ de Purp. cap. 11. §. 1: _Pluribus hæc Testa_ (Conchæ [GREEK]) _notis ab aliis Conchis differt, propriamque habet notam, innumeram Seriem exiguorum Cardinum, rectâ per obliquum lineâ, et admodùm longâ, Testæ connexum, efficientium_.
+_Cardines_: Concavo-convexæ Bivalvium Portiones, in parte crassiore Concharum suarum, quâ conjunguntur, et mutuò sibi inarticulantur, more Cardinum, in Januâ Ædificii. Conferatur _Ginglymus. Column._ de Purp. cap. 11. §. 1: _Pluribus hæc Testa_ (Conchæ Πολυλεπτογιγγλύμου) _notis ab aliis Conchis differt, propriamque habet notam, innumeram Seriem exiguorum Cardinum, rectâ per obliquum lineâ, et admodùm longâ, Testæ connexum, efficientium_.
 
 _Caro_: In genere, omnis mollior Substantia Testacei Animalis, quæ testæ includitur; in specie verò fibroso-fungosa, succi salsuginei, Ventremque solventis plena, distincta à partibus itidem mollibus quidem, sed Venosis aut Nerveis, aut etiam excrementitii quid exhibentibus. Hæc Caro (specialiter sumta) sicut Colore variat; ita _Flavicans et maculata Purpuræ_ est, teste _Columnâ_ de Purp. cap. 1. §. 33.
 
@@ -2016,7 +2016,7 @@ _Cuticula_: Quo respectu _Perlis_ vel _Margaritis_ tribuatur in ipsarum genesi, 
 
 **D\.**
 
-_Dentes Denticuli_: 1. Spinosæ Testarum eminentiæ; breves præsertim, et æquali longavè serie, in Ambitu illarum positæ. _Column._ de Purp: cap. 15. §. 1: _Et senis striis, totidemque strigibus in singulis Lobis, quibus margines denticulatæ fiunt, infecta_ (Concha Anomia, [GREEK] dicta.) Icon reducta habetur ad Vocem, _Striges_. 2. Eminentiæ intimiores quædam, acutæ, rugosæ, humiles, ubi scil. Testa aliqua (Turbinata præsertim) ex ampliore Ventre strictior redditur, et in Rostrum acutius angustatur, ut inde quasi Plicæ quædam breves resultent, acutangulæ, quæ _Dentes_ similitudine quadam appellantur. Vel breviùs: Crenæ acutiùs prominentes in Aperturis Testarum quarundam; ut videmus in Conchâ Venereâ; nec non in Cochleâ Marinâ Exoticâ Marmoreâ apud _Columnam_ de Purp. c. 10. §. 1 dum ait: _In anteriore et rotundâ parte Cochleæ, parum infra extremum, observantur Denticuli plures elati_. Et hanc Iconem addit:
+_Dentes Denticuli_: 1. Spinosæ Testarum eminentiæ; breves præsertim, et æquali longavè serie, in Ambitu illarum positæ. _Column._ de Purp: cap. 15. §. 1: _Et senis striis, totidemque strigibus in singulis Lobis, quibus margines denticulatæ fiunt, infecta_ (Concha Anomia, τρίλοβος dicta.) Icon reducta habetur ad Vocem, _Striges_. 2. Eminentiæ intimiores quædam, acutæ, rugosæ, humiles, ubi scil. Testa aliqua (Turbinata præsertim) ex ampliore Ventre strictior redditur, et in Rostrum acutius angustatur, ut inde quasi Plicæ quædam breves resultent, acutangulæ, quæ _Dentes_ similitudine quadam appellantur. Vel breviùs: Crenæ acutiùs prominentes in Aperturis Testarum quarundam; ut videmus in Conchâ Venereâ; nec non in Cochleâ Marinâ Exoticâ Marmoreâ apud _Columnam_ de Purp. c. 10. §. 1 dum ait: _In anteriore et rotundâ parte Cochleæ, parum infra extremum, observantur Denticuli plures elati_. Et hanc Iconem addit:
 
 [Figura]()
 
@@ -2030,7 +2030,7 @@ _Excrementum_: Humor crassus, Fœculentus, qui post Alimenti digestionem, ut inu
 
 _Excretorius Meatus_: Pars concava intra Carnem, quâ Excrementum egeritur.
 
-_Exochæ_: Striæ Eminentes. [GREEK], Eminentia, Acies. Unde vulgatum illud, [GREEK], per excellentiam: inque Architectonicis Pars ædificii quædam, quæ protuberat, Exocha dicitur.
+_Exochæ_: Striæ Eminentes. Ἐξοχὴ, Eminentia, Acies. Unde vulgatum illud, κατ ᾽ ἐξοχὴν, per excellentiam: inque Architectonicis Pars ædificii quædam, quæ protuberat, Exocha dicitur.
 
 **F\.**
 
@@ -2050,13 +2050,13 @@ _Foramina_: Lacunæ, inania spacia; quæ propriè non videntur, quoniam Privatio
 
 **G\.**
 
-_Ginglymus_: (Cardo veluti Januæ,) Modus Conjunctionis duarum Testarum, ut invicem se subintrent. Inque Osteologiam Medicam præcipuè terminus hic transsumtus est. De Conchâ [GREEK] vide _Column._ de Purp. cap. 2.
+_Ginglymus_: (Cardo veluti Januæ,) Modus Conjunctionis duarum Testarum, ut invicem se subintrent. Inque Osteologiam Medicam præcipuè terminus hic transsumtus est. De Conchâ Πολυλεπτογιγγλύμῳ vide _Column._ de Purp. cap. 2.
 
 _Glans_: Extrema pars Carnis, in longum emissæ, instar Penis, rimamque habens in medio, ut videtur in Cochleâ Iänthinâ _Columnæ_ de Purp. cap. 2. §. 2. cujus hæc est Icon:
 
 [Figura]()
 
-_Gomphosis_: à voc [GREEK], Clavus vel Cuneus. Incuneatio itaque, vel modus Conjunctionis Bivalvium, sicut Dentes Maxillæ humanæ, vel Clavi asseribus aut Parieti infiguntur. _Wormius_ lib. 3. Mus. cap. 7. pag. 254. _In Chamâ Peloride, ambæ Conchæ per validam Gomphosin in medio nectuntur._
+_Gomphosis_: à voce Γόμφος, Clavus vel Cuneus. Incuneatio itaque, vel modus Conjunctionis Bivalvium, sicut Dentes Maxillæ humanæ, vel Clavi asseribus aut Parieti infiguntur. _Wormius_ lib. 3. Mus. cap. 7. pag. 254. _In Chamâ Peloride, ambæ Conchæ per validam Gomphosin in medio nectuntur._
 
 **H\.**
 
@@ -2070,7 +2070,7 @@ _Humor_: i. e. Sanguis Purpuræ. _Column._ de Purp. cap. 1. §. 23. ex Isidoro: 
 
 **I\.**
 
-_Imbrices_: in Architecturâ propriè Tegulæ cavæ Tectorum, sic dictæ, quod Imbrem exceptum, desuper transmittant; vel integræ series coordinatæ Tegularum ejusmodi, aut Tectum ipsum. In Ostracologicis, Striæ eminentes aut Rugæ, in suo decursu fractæ, et conjunctim incedentes hoc pacto per Testæ Obliquum, Imbricem velut constituentes, e. g. in Conchâ [GREEK] _Columnæ_ de Purp. c. 11. §. 3: cujus Testacei Concha _Obliquis densioribus Rugis exasperata_ (est.) _ut Imbricata etiam dici possit_; cujus Icon hæc habetur:
+_Imbrices_: in Architecturâ propriè Tegulæ cavæ Tectorum, sic dictæ, quod Imbrem exceptum, desuper transmittant; vel integræ series coordinatæ Tegularum ejusmodi, aut Tectum ipsum. In Ostracologicis, Striæ eminentes aut Rugæ, in suo decursu fractæ, et conjunctim incedentes hoc pacto per Testæ Obliquum, Imbricem velut constituentes, e. g. in Conchâ Πολυλεπτογιγγλύμῳ _Columnæ_ de Purp. c. 11. §. 3: cujus Testacei Concha _Obliquis densioribus Rugis exasperata_ (est.) _ut Imbricata etiam dici possit_; cujus Icon hæc habetur:
 
 [Figura]()
 
@@ -2162,7 +2162,7 @@ _Certum est, Anchoram non potuisse vegetare, nec in montium jugis ad aliquem usu
 
 [Figura]()
 
-_Lobus_: Auricula Hominis aliàs; vel extremæ angulosæ, et segmentis velut divisæ partes Hepatis aut Pulmonis, ventriculum aut Cor ambientes. Item in Plantis, omnis Folliculus aut siliqua, quibus Natura Semen earum reposuit. _Columnæ_ nostro autem, Majores, in angulum excurrentes portiones Testæ, quâ tegitur Concha altera Anomia Striata, [GREEK] Eidem (cap. 15.) dicta, quòd velut _ex tribus simul junctis Testis, mediâ magis extuberante, constructa_ videatur, hâc effigie:
+_Lobus_: Auricula Hominis aliàs; vel extremæ angulosæ, et segmentis velut divisæ partes Hepatis aut Pulmonis, ventriculum aut Cor ambientes. Item in Plantis, omnis Folliculus aut siliqua, quibus Natura Semen earum reposuit. _Columnæ_ nostro autem, Majores, in angulum excurrentes portiones Testæ, quâ tegitur Concha altera Anomia Striata, Τρίλοβος Eidem (cap. 15.) dicta, quòd velut _ex tribus simul junctis Testis, mediâ magis extuberante, constructa_ videatur, hâc effigie:
 
 [Figura]()
 
@@ -2186,7 +2186,7 @@ _Meatus_: Pars oblongè concava in Testis, aut Testaceorum carnibus, quam aliqui
 
 _Meatus Excretorius_: vid: Anus.
 
-_Mecon_: ([GREEK]) Papaver; unde [GREEK], _Meconium_, Papaverculum; Succus, ex Papavere expressus. Tropicè dein idem, ac 1. Excrementum crassum ac nigricans, quod à recens-natis Infantulis primò excernitur. 2. Lentor tenax, viscidulus, fusci Coloris, in Ventre Purpurarum, aliorumvè Turbinatorum, situs, habitusque cæteroquin pro illarum vel Corde, vel Hepate, uti supra (Annot. 12. §. 18.) monuimus.
+_Mecon_: (Μήκων) Papaver; unde Μηκώνιον, _Meconium_, Papaverculum; Succus, ex Papavere expressus. Tropicè dein idem, ac 1. Excrementum crassum ac nigricans, quod à recens-natis Infantulis primò excernitur. 2. Lentor tenax, viscidulus, fusci Coloris, in Ventre Purpurarum, aliorumvè Turbinatorum, situs, habitusque cæteroquin pro illarum vel Corde, vel Hepate, uti supra (Annot. 12. §. 18.) monuimus.
 
 _Membrana_, Cirris Nautili interposita: vide sub Voce _Cirri_. Pellicula videlicet tenuis, sed robusta, inter brachia Nautili, Polypum referentis, sita; quâ etiam, aurâ inspirante, velificare scribitur.
 
@@ -2194,7 +2194,7 @@ _Mesenterium_: Corpus membraneum, in Hominis Ventre, quo Intestina colligantur, 
 
 _Micæ_: Puncta aut Maculæ coloratæ in Testâ aut carne. _Column._ de Purp. cap. 4. §. 1: _Corpus variegatum obscuris Micis purpureis, et infernè parum ad cœruleum tendens_, (in Buccino parvo.)
 
-_Mucro, Mucrones_: Acuti processus Testarum tam univalvium, quàm ex bivalvibus, Conchæ Exoticæ; de quâ sic _Columna_, d. Purp. c. 17. §. 3: _In plures desinit Mucrones, totaque Margo mucronata. Quare Concha [GREEK] apellari potest_.
+_Mucro, Mucrones_: Acuti processus Testarum tam univalvium, quàm ex bivalvibus, Conchæ Exoticæ; de quâ sic _Columna_, d. Purp. c. 17. §. 3: _In plures desinit Mucrones, totaque Margo mucronata. Quare Concha Μαχαιροραβδώτη apellari potest_.
 
 _Murices_: de hoc nomine abundè actum vide _Annotat._ 7.
 
@@ -2242,7 +2242,7 @@ _Ova_: propriè quidem non sunt Partes, sed potiùs Fructus, et nova Individua T
 
 **P\.**
 
-_Papaver_: Græcè [GREEK]: vid. Annotat. 12. §. 18. et confer Vocem _Meconium_.
+_Papaver_: Græcè Μήκων: vid. Annotat. 12. §. 18. et confer Vocem _Meconium_.
 
 _Perlæ_: vid. _Margaritæ_.
 
