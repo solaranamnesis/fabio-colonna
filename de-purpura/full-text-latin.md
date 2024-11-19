@@ -556,7 +556,7 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 §\. 2. Conchæ Cervix magna est, et crassa, ut clausa Testa se tangat cum alterius valvæ cervice, mediumque locum occupat conchæ, quæ circà illas in latus ampla fit obliquè, ut diametrum æquet, habeatque ternas connexiones pyxidatas; quarum minima, quæ proximior majori limbo, sive rostro est, media major, tertia longior: In imâ omnium strige, rugosa obliquè Lineis apparet concha.
 
-§\. 3. Hanc _Plinium_ novisse, vel similem, censeri potest, et descripsisse sub illâ notâ, _margine in mucronem emissa_; quamvis hæc in plures desinat mucrones, totaque margo mucronata; quare Concha [GREEK], appellari potest. Quatuor uncias diametrum æquat. Concha tota candida, non nimis crassâ est Testâ, quam Romæ habuimus; et similem _Imperatus_ habet.
+§\. 3. Hanc _Plinium_ novisse, vel similem, censeri potest, et descripsisse sub illâ notâ, _margine in mucronem emissa_; quamvis hæc in plures desinat mucrones, totaque margo mucronata; quare Concha μαχαιροραβδωτη, appellari potest. Quatuor uncias diametrum æquat. Concha tota candida, non nimis crassâ est Testâ, quam Romæ habuimus; et similem _Imperatus_ habet.
 
 # Caput 18. --- _Concha Natatilis Νηριτώδης minima, Persicæ dictæ Recentiorum congener; et Varietates aliæ Exoticæ_.
 
