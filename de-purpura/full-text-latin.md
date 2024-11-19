@@ -211,7 +211,7 @@ _Et gemmâ bibat, et Sarrano dormiat Ostro._
 
 *) _lib. 2. Georg. v. 506._
 
-§\. 7. Sed _Vitruvius_, tanquam Latinus, omisit verum Ostri Etymon, quod non est Latinâ derivatione factum, sed Græcâ. Testas quidem sive Conchas marinas Generis appellatione Græci dicunt [GREEK] et [GREEK], ex quibus Ostrum Latini purpureum colorem, et Ostracium ex Ostreâ dicunt. Græcis verò ex [GREEK], quod est [GREEK], quia Ossium sit duritie Marina Concha, Etymon sumpsisse putat _Eustathius_, sicuti Latinos à Testarum duritie, Testas. _Athenæus_* tanquam generalissimum acceptum refert, cum ait: _Solenistræ dicebantur, qui hujusmodi Ostrea colligebant_, ut inferiùs narrat; scilicet à Solenistrum capturâ.
+§\. 7. Sed _Vitruvius_, tanquam Latinus, omisit verum Ostri Etymon, quod non est Latinâ derivatione factum, sed Græcâ. Testas quidem sive Conchas marinas Generis appellatione Græci dicunt Ὄστρεα et ὄστρεια, ex quibus Ostrum Latini purpureum colorem, et Ostracium ex Ostreâ dicunt. Græcis verò ex ὄστεον, quod est οστ, quia Ossium sit duritie Marina Concha, Etymon sumpsisse putat _Eustathius_, sicuti Latinos à Testarum duritie, Testas. _Athenæus_* tanquam generalissimum acceptum refert, cum ait: _Solenistræ dicebantur, qui hujusmodi Ostrea colligebant_, ut inferiùs narrat; scilicet à Solenistrum capturâ.
 
 *) _lib. 3. cap. 12._
 
@@ -241,7 +241,7 @@ _Et gemmâ bibat, et Sarrano dormiat Ostro._
 
 *) _lib. 21. cap. 8._
 
-§\. 12. Ex quâ Descriptione Purpureum Colorem esse dicimus, qui magis ad rubedinem tendit, saturo satis Colore, ut Rosæ purpureæ; quem alibi* nigricantis Rosæ colore sublucentem dixit: alium dilutiorem, ut Violæ marinæ præcocis, quæ [GREEK] dicitur à Græcis. Altera verò Species Purpuræ illa videtur, quæ ex rubro magis ad cœruleum tendit dilutum, et dicitur propriè Conchylium, ut Heliotropii color vel purpureæ Malvæ; aut magis obscurum, ut Violæ, Serotinæ, quod est, Violæ purpureæ montanæ; de quo _Virgilius_*:
+§\. 12. Ex quâ Descriptione Purpureum Colorem esse dicimus, qui magis ad rubedinem tendit, saturo satis Colore, ut Rosæ purpureæ; quem alibi* nigricantis Rosæ colore sublucentem dixit: alium dilutiorem, ut Violæ marinæ præcocis, quæ ἴον dicitur à Græcis. Altera verò Species Purpuræ illa videtur, quæ ex rubro magis ad cœruleum tendit dilutum, et dicitur propriè Conchylium, ut Heliotropii color vel purpureæ Malvæ; aut magis obscurum, ut Violæ, Serotinæ, quod est, Violæ purpureæ montanæ; de quo _Virgilius_*:
 
 --- _Violæ sublucet Purpura nigræ;_
 
