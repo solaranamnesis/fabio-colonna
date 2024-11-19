@@ -2272,7 +2272,7 @@ _Rostrum_: 1. In Univalvibus, Productio Orificii Testæ, plûsminûs longa, rect
 
 [Figura]()
 
-3. Rostra in iisdem Bivalvibus dicuntur prætereà acutæ Cuspides aut Mucrones, quibus Limbus Conchæ Exoticæ exasperatur, descriptus â _Columnâ_ de Purp. cap. 17. §. 1.
+3\. Rostra in iisdem Bivalvibus dicuntur prætereà acutæ Cuspides aut Mucrones, quibus Limbus Conchæ Exoticæ exasperatur, descriptus â _Columnâ_ de Purp. cap. 17. §. 1.
 
 _Rugæ_: Eminentiæ Testaceorum in oblongum productæ, latiores, et velut Undæ, aut strictiores; profundiores, aut superficiales; obliquè, aut rectà ductæ; densiùs compactæ, aut laxiùs à se distantes; molliores (in Carne quorundam) aut duræ præsertim, in Testis multis conspicuæ, e. g. Chamarum, Pectinum, Cochlearum, Turbinum quorundam, nostræ Purpuræ, ac similium. Ita enim _Column._ c. 10. §. 4. de Cochleâ Marinâ Exoticâ: _Rugis obliquè profundioribus, ut quodammodo aspera sit tangenti._ Et cap. 2. §. 3. de Conchâ [GREEK]: _Obliquis densioribus Rugis exasperata._ Et cap. 12. §. 3. de Conchâ Anomiâ Rariore: _Concha parva est, --- obliquè parum additamentis Rugosa, sed non ob id aspera, sed lævis._ Icon inferiùs relata exstat sub Voce _Vertex_.
 
@@ -2351,7 +2351,7 @@ _Vertex_: Retorta aliquorsum subrotunda et strictior Testæ pars. In specie ver�
 
 [Figura]()
 
-2. Processus corniformis anomalus, in Conchâ quàdam Exoticâ _Ejusdem_, cap. 19. §. 2. 3. Iconque ibi habetur talis:
+2\. Processus corniformis anomalus, in Conchâ quàdam Exoticâ _Ejusdem_, cap. 19. §. 2. 3. Iconque ibi habetur talis:
 
 [Figura]()
 
@@ -2367,7 +2367,7 @@ nec non in Cochleâ Terrestri turbinatâ et Striatâ _Ejusdem_, de quâ cap. 9. 
 
 [Figura]()
 
-2. Centrum, etiam concameratum, vel medium Testæ Lepadum, quoad concavam earum superficiem spectatarum. Vide _Column._ de Purp. cap. 6. §. 1.
+2\. Centrum, etiam concameratum, vel medium Testæ Lepadum, quoad concavam earum superficiem spectatarum. Vide _Column._ de Purp. cap. 6. §. 1.
 
 _Unda_: Rugarum Testæ structura minùs stricta, aut acutangusa; sed amplior potiùs, et in rotundum oblongè elata; qualis est Concha Anomia rarior _Columnæ_ de Purp. c. 12. cujus Icon paulò antè adducta hîc est, sub voce _Vertex_. Item Concha Anomia 4. margine Undosa ab _Ipso_ dicta, cap. 14.
 
