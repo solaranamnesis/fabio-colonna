@@ -466,7 +466,7 @@ Est et alter, simili modo ex sinistrâ parte in dexteram convolutus, non adeò f
 
 §\. 2. Differt etiam, quia unicâ tantùm Volutâ sive circuitione definitur, illâque vix conspicuâ. Maculis in cute nigris, magnis, inordinatis insignitur, et per obliquum rugis etiam vix apparentibus circà os exasperatur.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 §\. 3. Huic similem _Aldrovandus_ pro _Nerite_ suo de Testaceis volumine, tertio et quarto Loco depinxit, colore variantem: quantùm verò à Nerite Antiquorum distet, jam aliàs diximus, tàm brevem crassamque testam natare minimè posse; nec illum observasse censemus.
 
@@ -480,7 +480,7 @@ Est et alter, simili modo ex sinistrâ parte in dexteram convolutus, non adeò f
 
 *) _lib. 9. cap. 33._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 §\. 3. Differt Cervice ad latum obliquè dependente: quod quamvis aliis testis etiam sit commune, quia hujus longiùs à connexu abest, planâ remanente inter cervicem et cardines testâ veluti recisâ, et complanatâ, Lineis multis undosis sculptâ; non parum ab aliis evariat: crassa insuper est respectu molis testa, externè admodum densè striata, ac etiam obliquis densioribus rugis exasperata, ut imbricata etiam dici possit. Internâ parte circâ os tantùm brevibus striis connectitur dentium vice; reliquâ cavâ, levi.
 
@@ -496,11 +496,11 @@ Est et alter, simili modo ex sinistrâ parte in dexteram convolutus, non adeò f
 
 §\. 3. Hujus igitur Effigies lævis, depressa, parùm oblonga, ab aliis Conchis in hoc præcipuè differens, quod altera Conchæ pars oblongior est, collum, cervicemque totam, quæ oblongior est, et rotundior, atque acutior, prominetque, suprà cervicem alterius diffundit, ut infrà illius collum altera cervix connectatur. Concha parva est, candida, tenuis, obliquè parum additamentis rugosa, sed non ob id aspera, sed levis.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 §\. 4. Repletam invenimus candidâ _tophaceâ Concretione_, quâ totus ille clivosus locus, sive collis, est editus, qui non magis terrenâ concretione tophaceâ, quàm variarum concharum fragmentis, et integis etiam innumeris, est compactus, hanc et alias in vallecula illâ, sive fossâ quâdam, parum subtùs Ecclesiam D. Mariæ de Andriâ, extra urbem milliari sitâ, excepimus: illic enim, ob gratias à Sanctissimâ DEI Genitrice acceptas referendas, fuimus, sicuti et alii magnâ cum frequentiâ vota solventes, concurrunt quotidie. Ecclesia quidem illa magnis donis et Miraculorum Signis ornatur; nec non sumtuosâ Structurâ, ipsa Ecclesia et Monasterium.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 §\. 5. Hujus similem apud doctissimum _Imperatum_ nostrum in suo Muséo, rerum omnium Naturæ satis copioso Thesauro, observavimus; quæ margine erat parum undosa, et longiore Conchæ parte canalem vix conspicuum in dorso, altero verò medio, contrario modo extuberante: omnesque peculiari notâ sunt præditæ, quod cervice prominente rostratâ, pertusâ, oriuntur, quâ turbinatorum more Aquam haurire et exspuere, sylvestris Lepadis, aut Auris marinæ modo, possunt. Icon magnitudinem æquat. Huic _similem_ majorem multò, _Lapideam_, depinximus in _Prima parte_, nomine _Conchæ gibbosæ_.
 
@@ -518,7 +518,7 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 §\. 1. Ex eodem genere et hæc videtur, major Concha et crassior; cujus obesa Valva minor est, atque tribus simul junctis Testis, mediâ magis extuberante, constructa videtur, et senis striis, totidemque strigibus in singulis Lobis, quibus margines denticulatæ fiunt, insecta; præterquàm pars interjecta inter Lobos, quæ rectâ lineâ marginem definit. Alterâ parte, quâ valvæ in caput prominet, medium habet Lobum depressiorem, et oblongiorem, reliquis à latere brevioribus, et elatis, eodemque modo striatis; quâ parte tota Concha expansis alis aviculam incurvam repræsentare videtur. Conchæ cortex, castaneo colore fuit, ut ex fragmento, quod in cervice adhærebat, observavimus.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 §\. 2. Lapideam quidem naturam interior pars, cujus effigiem damus, adepta erat, colore ob vetustatem flavicante; intus verò, candicante. Et hæc ex ditissimo naturæ promptuario _Imperati_.
 
@@ -536,11 +536,11 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 §\. 1. Morosi videntur Nobis quidam, qui has et similes Concretiones negant, ex Testaceorum internâ cavâ parte sibi effigiem parare, atque Naturam contendunt, propriis initiis Animantibus aut Vegetantibus, Lapideas hasce aut consimiles perficere Conchas et Buccinas, Cochleasque, atque innumera alia.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 §\. 2. Non negamus, quin multa alia sint, propriâ formâ sic concreta; sed nullam illa habent cum cæteris rebus naturalibus, quæ vixerint, communitatem, nec aliquid simile rectè, aut perfectè referunt, ut sunt, quæ locum corruptæ rei replent.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 §\. 3. Inter alia et hæc testimonium perhibebit veritatis, rarissima Conchæ concretio, quæ non externam, sed internam tantùm partem refert, Lineis obliquè ductis gradatim, ut in Testæ internâ parte fuerant, et exiguas Cervices, Lieamque Cardinum et marginis. Tota terreâ crustâ, et veluti sordida, colore ochræ foris est; intùs verò prope marginem, ab alterâ ex Valvis, quæ forsan perforata, aut fracta fuit, origo stillati et ingressi humoris apparet, in Crystallini lapidis Speciem, Electri, aut Chrysolithi colore, atque in plures angulosas connexas pyramides concreti. Quod si humor ille vegetam habuisset naturam, et extremam partem splendidam, et propriâ effigie insignitam efformasset; non sordidam, ac alienam Conchæ induisset, ut manifestè apparet.
 
@@ -552,7 +552,7 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 §\. 1. Peculiare huic rariori, quod præter Strias, aliis Conchis communes, quæ huic læves et latiores duplò ferè sunt stigibus; striæ ipsæ iterum ab angusto, et elato limbo, itùs fistuloso, supra illarum dorsum decurrente in alias tenues novenas strias efformantur, et loco strigium esse videntur: et Conchæ margo extrema Rostrata efficitur singulis novenis striis, quæ internâ parte cavæ apparent.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 §\. 2. Conchæ Cervix magna est, et crassa, ut clausa Testa se tangat cum alterius valvæ cervice, mediumque locum occupat conchæ, quæ circà illas in latus ampla fit obliquè, ut diametrum æquet, habeatque ternas connexiones pyxidatas; quarum minima, quæ proximior majori limbo, sive rostro est, media major, tertia longior: In imâ omnium strige, rugosa obliquè Lineis apparet concha.
 
@@ -562,7 +562,7 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 §\. 1. Sitnè Concha hæc, vel potiùs Cochleæ natura, sive suâ specie ita exigua, vel potiùs infans adhuc et tenella, dubitamus. At quod à Persicis differat, asserere possumus. Concha est, unguis majoris digiti magnitudine, unguis tenuitate, sed fragilior, colore ex pullo candicans, amplo admodum hiatu, ut infrà se turbinem colligat. Caret illo Lunato sinu, circa columellæ summum, quo Lingva exseri possit, ut in congeneribus.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 §\. 2. Animal intus habet magnum: sed quia non recens, sed exsiccatum in Ipsâ Concha vidimus, non aliud, quàm quod triplici veluti Loliginis ossiculo munitum esse observavimus; quorum aliquod Operculum, et carni annexum esse, non dubitamus.
 
@@ -570,11 +570,11 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 §\. 4. Hanc _Imperatus_ noster nobis dono dedit; nec non et alios congeneres exoticas communicavit; de quibus, quia locus est, agemus, notas tantùm varietatis addentes, cum ex illarum picturâ satis Testæ differentia colligi possit.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 §\. 5. Prima et major, longa est semipedem, et unciam, lata palmū, colore ex cinereo flavicans, intus pallida, nitida, circa columellam externè rugosa, aspera, et magis flavicans, turbine infrà basim posito, ut vetustate minùs semper promineat, et includatur. Natat in Aquâ, ut congeneres, additoque pondere circa interiora, lata magis pars altera opposita, velificare videtur; ventoque impelli potest. Altera magis rugosa, foris colore ex fulvo ad castaneum vergente, intus candicat; sed Zonis distinguitur flavis et cinereis, turbine prominente, ex canali, distinguente Volutas duas, quibus testa contorquetur. Natat, ut superior: minor verò duplò, sed crassiore Testâ. Lunatæ sunt in extremo columellæ, ad Linguæ usum.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 # Caput 19. --- _Concha Exotica Vertice muricatim intorto_.
 
@@ -582,7 +582,7 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 §\. 2. Hanc mutilam, unâ tantùm valvâ imâ, dono accepimus Romæ à _Fabricio Christiano_, reconditarum rerum Viro curioso, ac Argentariæ officinæ domino, inter alia plura, et perpulchra Testacea. Hujus similes nostro mari haud conspicuas se præbent: quare Exoticam Concham, sicuti alias, esse non dubitamus: ac à _Plinio_ forsitan illis verbis comprehensa, (_Vertice muricatìm intorto, vel ad Buccinam recurvis_,) cervice quidem retorquetur, ac si non Concha, sed Cochlea fieri deberet.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 §\. 3. Nec aliud dicere possumus de eâ, nisi quod crassâ sit Testâ, et albicante, ac etiam ob vetustatem exesâ; in cujus superficie rubri Coralii corniculatum cespitem, latâ ac tenui radice, veluti si cera liquefacta rubra superinducta esset, Testæ superficiei, natura excitavit; vel si Coralii materies initiò molle quid, ac muscosum viscidum initium habuisset, ut opinamur.
 
@@ -590,7 +590,7 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 Parva est, unciam longa: angusta Testa, lævis; obliquè circa medium extuberans, ac si anulo cincta esset: rimam pro ore habet lævem. Crassa Testa est, candida, diaphana, splendens: et cum sit exotica, nihil aliud referre possumus, nisi varietatem, quâ naturæ solertiam admirandam proponimus. Animal exiguum: nec profundè contineri in ipsâ Testâ, dijudicamus ex _Imperati Muséo_.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 Finis.
 
@@ -737,7 +737,7 @@ id citra Tralationem etiam dicere poterat, respectu Imaginis Auroræ, purpureo s
 
 _Prima_ nimirum, Signo ☉ notata, Amplitudinem habet, cujus diameter Unciarum 4 1/2: Altitudinem verò 3 1/2 Unc. circiter.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 _Secunda_, Signo ☾ notata, amplitudine (diametraliter) æquat Uncias 3. Altitudine Uncias 2 1/2.
 
@@ -894,7 +894,7 @@ _Cœruleo_ vel Cyaneo, _et Nigro, Subcœruleus_, vel Nigro propè, propiùs, aut
 
 §\. 10. Cujusmodi Differentias _Kircherus_ etiam (_libr. Mund. Subt. Sect. 1. cap. 5. pag. 14._) strictim tetigit, easque tali circiter Schemate, à me aliquantulùm distinctius hîc, pleniùsque exhibito, adumbrat; et Dispositionem istam sine dubio ex Opticâ _Fr. Aguilonii_ (lib. 1. propos. 39. pag. 40.) desumsit, ut conferre Autorem utrumque volentibus, patebit.
 
-[Figura --- _a._: Incarnatus. _b._: Viridis. _c._: Subruber, brunus. _d._: Cinerascens. _e._: Fuscus. _f._: Cinereus.]()
+[Figura --- _a._: Incarnatus. _b._: Viridis. _c._: Subruber, brunus. _d._: Cinerascens. _e._: Fuscus. _f._: Cinereus.](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 §\. 11. Interim tempus est, ut directè nunc, stratâque Ordinis viâ meliore paulùm, aut commodiore, quàm quæ apud _Columnam_, cœterà _doctissimum_, habetur, ad declarandas _Purpuræ Differentias_ pergamus. Quæ mihi videntur duplices:
 
@@ -1131,7 +1131,7 @@ Intercessisse tamen his etiam Pannis diversos gradus Tincturæ suæ, aut _Purpur
 
 §\. 17. Id _Rostrum_ (à rodendo dictum) in aliquibus Purpuris, præsertim grandioribus, est longum satis, et rectum, tubuli modo semiaperti relicti, vel tenui etiā ac durâ laminâ superinductâ tecti, spinisque in uno limbo exasperatum, vel iisdem etiam carens, ac nudum: in aliis contrà, ut in præsenti _Columnianâ_, brevius, et duplicis potiùs productionis repandæ mediocris, quàm simplicis, rectâ emissi, canalis conditionem ferens: quales productiones repandas breviores quoque in Purpuris multis Venetis observavi. _Columna_, de suâ, ita ait, cap. 1. §. 28. _Brevi admodùm Tubulo vel Canali, Oris pars superior definitur, ut in Buccino_.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 §\. 18. _De Testulis_ verò et _Filis_ Testaceorum, (atque sic _Purpuræ_) ante acutissimum _Nic. Stenonem_, (_in Prodromo Dissert. de Solido intra Solid:_) nemo quicquam, quod norim, scripsit. Et per ea quid intelligatur, quæque de iis sint dicti _Autoris_ Observationes selectiores ac Hypotheses, directè hîc quidem monendum esset: Sed novum istud elegantis Doctrinæ Specimen peculiarem Titulum meretur; et ad finem properat præsens Annotatio. Quapropter hac absolutâ, additisque tantisper, quæ hîc loci de _Purpuræ Operculo Usuque_ restant dicenda adhuc, sequentis Annotationis vicem _Stenoniana_ illa in medium distinctim prolaturus sum; poteritque ea, qui vult, pro lubitu, Purpuræ Testis applicare.
 
@@ -1304,7 +1304,7 @@ Icone tamen non expressit; et concipienda forsitan talis erit,
 qualem cæteroquin (servatâ proportione Animalculi) ex-
 hibet cap 4. in hâc Parvi Buccini Figurâ:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 In Purpurâ sanè _Longitudo_ Linguæ planè Digitalis tribuitur ex _Plinio_, lib. 9. c. 36. dum ait: _Lingua Purpuræ, digitali longitudine, quâ pascitur, perforando reliqua Conchylia._ Unde Proverbium: Purpurâ voracior.
 
@@ -1404,7 +1404,7 @@ In Purpurâ sanè _Longitudo_ Linguæ planè Digitalis tribuitur ex _Plinio_, li
 
 §\. 2. Quapropter misso Secundo, Tertio, et sequentibus Capitibus, ad _Duodecimum_ ut strictim me convertam, occasionem mihi dant Verba Capitis ejus terminalia hæc, postquam nempe de Conchis Anomiis rarioribus, Vertice Rostrato, actum fuerat: _Huic similem, majorem multò, Lapideam, depinximus in Primâ Parte, nomine Conchæ Gibbosæ_. Per hanc Primam Partem verò intelligit _Observationes Aquatilium et Terrestrium Rariorum_, ubi Concham istam Gibbosam Lapideam describit, suâ manu æri incisam; iconemque ejus affert hanc, quam Ligno sculpi dein procuravi:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 Verba ipsa verò piget, quod simul transscribi non curaverim, vel quod transscripta perdiderim.
 
@@ -1468,7 +1468,7 @@ non-Viventia:
 
 _Testacea Petrefacta_: de quibus vid: _Colum. c. 16. §. 5. Nuclei Lapidei_, Testularum Concavo sub Terris conformes facti; falsòque pro Ipsis Testis petrefactis habiti. Qualis est apud _Col. c. 16. Concha Fasciata, Gemmeâ concretione repleta_: hâc figurâ:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 2\. Propriè: vid. TAB. 2.
 
@@ -1490,7 +1490,7 @@ distinctim, Generis vel
 
 Incerti aut dubii: qualis videtur esse _Concha Exotica, Vertice muricatim_ (intellige turbinatim) _intorto, Column. de Purp. cap. 19._ Ex contextu enim _Autoris_ præcisè non liquet, Univalvibusnè, an Bivalvibus annumeranda sit?
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 Certi ac determinati: de quo vid. TAB. 3.
 
@@ -1524,11 +1524,11 @@ veræ, et κατ ᾽ ἐξοχὴν _Lepades_ (speciei multiplicis) partim
 
 Mediocres: e. g. _Lepas Exotica variegata Column._ de Purp. c. 6.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 Parvæ, e. g. _Lepas nova, Myrti Morbus: ibid._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 agriæ vel sylvestres: _Aures Marinæ_: Fulgore
 
@@ -1554,7 +1554,7 @@ _Lepades_
 
 _Concha Natatilis_ Νηριτώδης _minima, Persicæ dictæ Recentiorum congener, Column. de Purp. c. 18._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 Strictioris: vel
 
@@ -1566,7 +1566,7 @@ _iisdē Analoga_ quædā, et Turbinatis accedentia vel
 
 planè non: e. g. _Concha utroque latere se colli-exotica, Column. c. 20._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 quadantenus, h. e. ductæ intùs Spiræ vestigium foris aliquod prodentia: _Conchæ et Conchulæ quasi Conchæ Veneris_, (plerumque albæ.)
 
@@ -1580,7 +1580,7 @@ Turbinata distribuenda videntur summè, in
 
 Ventre carentia: qualis est præsens _Voluta, utrobivis aperta_ (lapidea potiùs) _nullibi aliàs descripta_:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 Et Ventriosa: quorum aliqua Turbinem suum
 
@@ -1624,7 +1624,7 @@ Muricato-Striata:
 
 Muricato-Rugoso-Striata: qualis est præsens _Purpura Column, de Purp. cap. 1._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 errucarum vel Tuberculorum: _Verrucosa_,
 
@@ -1680,7 +1680,7 @@ Rugarum: _Cochleæ Rugosæ_.
 
 Striarum: e. g. _Cochlea Marina Exotica marmorea Columnæ, de Purp. c. 10._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 Æquali vel glabrâ.
 
@@ -1704,13 +1704,13 @@ Rugarum:
 
 Striarum: e. g. _Cochlea Terrestris Turbinata et Striata Column. c. 9._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 Æquales et glabræ.
 
 extraordinario, aut minùs in reliquis usitato, Elatiore nimirum, et velut in Pinnas vel Aures amplè laxato: qualis est _Cochlea Iänthina_, apud _Columnam de Purp. cap. 2._ descripta, utpote cujus Testa tenuis, tribus Volutis Constans, Limbo circa Umbilicum effertur admodùm, quod in aliis Cochleis non observatur.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 ### Tabula 8.
 
@@ -1726,7 +1726,7 @@ Conicam, Apice Turbinis constituto in
 
 Summo, (vel stricto Testæ acumine) e. g. _Turo Exoticus Umbilicatus Column. de Purp. c. 3._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 Imo, vel Basi: _Conchæ multæ Persicæ_, pulcrè maculatæ, Volutæ Spirâ totâ in planam plusminùs basin collectâ.
 
@@ -1742,13 +1742,13 @@ Muricata:
 
 Verrucosa: quale est _Buccinum Exoticum parvum Columnæ, de Purp. c. 5._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 Rugosa.
 
 Striata: quorsum fortè spectabit _Buccinum parvum nostras_, (h. e. Neapolitanum) _Columnæ, c. 4._ dictum.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 Contrario modo, in
 
@@ -1760,7 +1760,7 @@ _Major, cap. 7._
 
 _Et Minor: ibidem._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 Cylindricam: vid. TAB. 9.
 
@@ -1776,7 +1776,7 @@ Inæqualis
 
 Rugoso-Striatæ: e. g. _Concha Natatilis_ Νηριτώδης _Column. de Purp. c. 18. §. 5._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 Striatæ.
 
@@ -1784,7 +1784,7 @@ Striatæ.
 
 distinctiùs emisso: e. g. _Concha Natatilis_ Νηριτώδης _altera Column. l. d._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 ### Tabula 10.
 
@@ -1820,7 +1820,7 @@ Simpliciter: _Bivalvia Muricata_.
 
 Mixtim: _Muricato-Striata; qualis est Concha Exotica, margine in Mucronem emissa, Column. de Purp. c. 17._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 Verrucis:
 
@@ -1840,7 +1840,7 @@ fractis, et Imbricem velut constituentibus vel
 
 Simplicem, e. g. _in Conchâ Striatâ lapideâ imbricatâ Specûs Baumannicæ_; cujus, Saxeo frustulo adhuc immersæ, est hæc figura:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 duplicem:
 
@@ -1848,7 +1848,7 @@ triplicem.
 
 quadruplicem: qualis esse videtur _Concha_ Πολυλεπτογίγγλυμος _Column de Purp. cap. 11._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 ε\.
 
@@ -1882,13 +1882,13 @@ certò talis
 
 major: talis nempe:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 _minores similes_, Avellanæ nucis magnitudine: _vid. Column. de Purp. cap. 15. §. 3. seq._
 
 incerti utcunque ordinis, _Concha Lapidea Gibbosa Columnæ, Observ. Aquatil. et Terrestr. pag. 52. et cap. 12. de Purp. §. 5._ Incertum enim, ex effigie, an ad Univalvia, vel Bivalvia, (quod tamen verisimilius) pertineat.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 β\.
 
@@ -1900,13 +1900,13 @@ Undoso-Rugosa: _Concha Anomia altera, vel Neptunia major imbricata, Column. c. 1
 
 Rugoso-Striata: _Concha rarior Anomia, vertice rostrato Column. c. 12._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 β\.
 
 Striata: e. g. _Concha altera Anomia Imperati, Column. de Purp. cap. 12. §. 5._
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/014.png)
 
 α\.
 
@@ -1914,7 +1914,7 @@ PLURIVALVIA in specie dicta, h. e. Testis, duplici pluribus instructa: iisque ve
 
 tribus circiter aut quatuor; quò referenda, quæ veniunt nomine _Concharum Anatiferarum_:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/032.png)
 
 pluribus sæpe etiam: _Balani aut Glandes_; quarum aliæ
 
@@ -1940,11 +1940,11 @@ _Aculei_: Prominentes acuti Processus Testarum. _Columna_ de Purp. c. 1. §. 21:
 
 _Ambitus_: Determinatio Patentioris Testæ, aut Limbus extremus. _Column._ de Purp. cap. 6. §. 1: _Lepas hæc_ (Exotica variegata) _magis cava, rotundiore ambitu, nec in angulos desinens_. Iconemque adducit talem:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/006.png)
 
 _Anfractus_: communiter Volutæ Spirales Turbinatorum: rectiùs distinctiones annuæ, formâ arcûs aut semicirculi eminentioris, in Testæ Volutâ hinc inde; ortæ ex Limbis singulis, qui crescenti Animalculo quotannis superadduntur, ut ætas illius non obscurè exin cognosci possit. Dicunturque Anfractus proin, quod juxta longitudinem Testæ hinc inde ex Voluminibus Testæ eminendo, eandem quasi infringant, hoc est, quoad partes, quæ singulis Annis ab Orificio amplo accreverint, distingui faciant. Confer etiam Vocem, _Limbus_. _Columna_ de Purp. cap. 1. §. 31: _In exiguis quandoque plures Orbium Anfractus observavimus: quos deinde atteri ob tenuitatem, aliis supercrescentibus, censemus, ob Animalis Volutationem, et Testæ imbecillitatem_. Priori modo tamen _Anfractûs_ vocabulum _Autor_, de Purp. cap. 9. §. 1. adhibet, de Cochleâ Terrestri Turbinatâ loquens: _Quinque constat Anfractibus_. Hancque dat imaginem:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/010.png)
 
 _Anus_: Meatûs Excretorii orificium vel apertura, per quam excrementum ejicitur.
 
@@ -2002,7 +2002,7 @@ _Cor_: Purpuræ Cor idem cum Hepate aut Papavere ejus esse statuitur, ut ex _Ann
 
 _Corniculum_: tanquam parvum Cornu; Processus nempe in Turbinatis, (præsertim de Cochlearum genere) geminus, vel Prominentia carnosa, mollis, teres, antrorsùm sita, retractilis iterum ad levem contactum, dum obvium quidvis facilè, tanquam digitis palpant; Oculoque, ut videtur, supernè aut in medio insignita. _Column._ de Purp. cap. 1. §. 33: _Hujus quidem_ (Purpuræ Cornicula) _in acutum desinunt; et Oculi non in summo, ut in Terrestribus_ (Cochleis) _sed supra medium Corniculorum observantur, ubi Cornicula veluti resecta, per longum tenuiora efficiuntur_. Et cap. 4. §. 1: _In cujus_ (Cervicis, Buccini parvi) _lateribus, Cornicula, ut in Purpurâ diximus, in medio veluti resecta, in quibus Oculi etc._ Vel etiam, nisi planè Processus hos retrahant Purpuræ, occasione datâ sibi cujuspiam offendiculi; spontè interdum eosdem, ob alium finem, leniter incurvant: ad Oculos, in medio sitos, protegendos videlicet. Ita enim _Autor_ noster, de Purp. c. 1. §. 33: _Oculos verò aliquando tueri Corniculis, supra illos incurvatis, ut in picturâ notatur, observavimus_.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 _Cornua_: Cochlearum generi ferè propria, ut modò de Corniculis est dictum. _Doctissimus Schwammerdammius_ videtur statuere, Cochleas terrestres minores (quales in Holsatiâ etiam perfrequentes sunt) cornuum istorum commissu, eoire: et lacteum Liquorem ex eorundem cuspidibus sponte exsudare Cochleas Vinearum edules, tempore Veris, observavit aliquando, mihique retulit _Dn. D. Sebaldus Scholtz_, Medicus Vratislaviensis.
 
@@ -2018,7 +2018,7 @@ _Cuticula_: Quo respectu _Perlis_ vel _Margaritis_ tribuatur in ipsarum genesi, 
 
 _Dentes Denticuli_: 1. Spinosæ Testarum eminentiæ; breves præsertim, et æquali longavè serie, in Ambitu illarum positæ. _Column._ de Purp: cap. 15. §. 1: _Et senis striis, totidemque strigibus in singulis Lobis, quibus margines denticulatæ fiunt, infecta_ (Concha Anomia, τρίλοβος dicta.) Icon reducta habetur ad Vocem, _Striges_. 2. Eminentiæ intimiores quædam, acutæ, rugosæ, humiles, ubi scil. Testa aliqua (Turbinata præsertim) ex ampliore Ventre strictior redditur, et in Rostrum acutius angustatur, ut inde quasi Plicæ quædam breves resultent, acutangulæ, quæ _Dentes_ similitudine quadam appellantur. Vel breviùs: Crenæ acutiùs prominentes in Aperturis Testarum quarundam; ut videmus in Conchâ Venereâ; nec non in Cochleâ Marinâ Exoticâ Marmoreâ apud _Columnam_ de Purp. c. 10. §. 1 dum ait: _In anteriore et rotundâ parte Cochleæ, parum infra extremum, observantur Denticuli plures elati_. Et hanc Iconem addit:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/033.png)
 
 _Dorsum_: 1. Pars Testæ maximè eminens in Convexo ejus; tam Univalvium, quàm Bivalvium. 2. Pars superior carnis, ad Caput Purpuræ, ac Turbinatorum aliorum pertinens, inter Cornicula ac Testam.
 
@@ -2054,7 +2054,7 @@ _Ginglymus_: (Cardo veluti Januæ,) Modus Conjunctionis duarum Testarum, ut invi
 
 _Glans_: Extrema pars Carnis, in longum emissæ, instar Penis, rimamque habens in medio, ut videtur in Cochleâ Iänthinâ _Columnæ_ de Purp. cap. 2. §. 2. cujus hæc est Icon:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/002.png)
 
 _Gomphosis_: à voce Γόμφος, Clavus vel Cuneus. Incuneatio itaque, vel modus Conjunctionis Bivalvium, sicut Dentes Maxillæ humanæ, vel Clavi asseribus aut Parieti infiguntur. _Wormius_ lib. 3. Mus. cap. 7. pag. 254. _In Chamâ Peloride, ambæ Conchæ per validam Gomphosin in medio nectuntur._
 
@@ -2072,11 +2072,11 @@ _Humor_: i. e. Sanguis Purpuræ. _Column._ de Purp. cap. 1. §. 23. ex Isidoro: 
 
 _Imbrices_: in Architecturâ propriè Tegulæ cavæ Tectorum, sic dictæ, quod Imbrem exceptum, desuper transmittant; vel integræ series coordinatæ Tegularum ejusmodi, aut Tectum ipsum. In Ostracologicis, Striæ eminentes aut Rugæ, in suo decursu fractæ, et conjunctim incedentes hoc pacto per Testæ Obliquum, Imbricem velut constituentes, e. g. in Conchâ Πολυλεπτογιγγλύμῳ _Columnæ_ de Purp. c. 11. §. 3: cujus Testacei Concha _Obliquis densioribus Rugis exasperata_ (est.) _ut Imbricata etiam dici possit_; cujus Icon hæc habetur:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/012.png)
 
 In Conchâ item Neptuniâ majore _Ejusdem_, cap. 13. quam Imbricatam peculiariter nominat: in Pectunculis: et in Conchâ Striatâ lapideâ Specûs Baumannicæ, quam in Tabulâ 10. Ostracologicâ adduximus; hanc nimirum:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/031.png)
 
 _Intestinum_: Canalis strictus, mollis, oblongus, pro transitu Excrementi, ex Alimentis residui. _Simplex in Turbinatis continuo ductu fertur àgulâ ac Ventre, in sinu verticoso Testæ. Inde reciprocans, sursum adscendit ad Carnosas partes, et circa Caput terminatur, quâ emittitur Excrementum_: sunt verba _Jonstoni_ de Aqualit. Exsangu. Tit. 1. p. 38. b.
 
@@ -2122,7 +2122,7 @@ _Externè ad Superficiem Volutæ spectans_, et quasi Fasciola, illam ambiens. It
 
 _Molliorem_, vel Substantiæ carnosæ; per eum intelligitur Ambitus anterioris partis Carnis, quam Turbinata inter rependum expandunt vel extendunt, dein contrahunt, atque iterum in Latitudinem producunt. Unde _Column._ de suâ Purpurâ, cap. 1. §. 34: _Corpus protrahens, iterumque Limbum producens, quem latum habet._ Intellige, Antrorsùm. Retrorsum enim moles carnea, quam Turbinata é Testis suis protrahunt, semper aut plerumque strictior est; et quidem obtusa in fine. In aliquibus tamen forsan etiam bisulca, ut in Buccino parvo; De quo sic ait _Columna_ de Purp. cap. 4. §. 1. _Limbo, ut Cochleæ, graditur lato, in extremâ posteriore parte bisulco, veluti Insectum, caudato._ Et Figuram hanc adducit:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/004.png)
 
 _Lineæ_: 1. i. e. Maculæ strictiores, longæ, aut Inscriptiones virgatæ, (in Testarum convexo præcipuè) longiùs productæ; rectæ, aut undosæ; _Column._ de Purp. cap. 11. §. 3. _Lineis undosis sculpta_; elatæ, aut depressiores;
 
@@ -2134,7 +2134,7 @@ quàm mixtæ; _Clathratæ_ per rectum et obliquum, ut loquitur _Idem_: cap. 10. 
 
 2\. i. e. Ipsæmet Striæ, utcunque prominulæ, Testamque exasperantes: _Idem_ cap. 5. §. 1: (Buccinum Exoticum parvum) _Tuberculis nigro-flaventibus, et Lineis elatis candida Testa exornatur_. Icon est talis:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/005.png)
 
 _Lingua_: in Homine, Caro media Faucium, articulandæ vocis, gustûsque obtinendi organum; Geographis, Sinus, vel angustior Maris pars, oblongè inter Continentis flexus concavos angustiores excurrens; Mechanicis, pars Vectis anterior, obtusè aut subrotundè formata. In hâc Ostracologiæ parte autem, portio Carnis longa Stricta, intus concava vel canaliculata, ex sede faucium emergens, Aquæ hauriendæ et reddendæ inserviens, tam in _Purpuris_, quàm _Buccini_ specie. De _Purpurâ_ enim hæc habet _Autor_ noster, cap. 1. §. 4. et 25. ex Plinio: _Lingua Purpuræ, digitali longitudine, quâ pascitur, perforando reliqua Conchylia._ Quæ Perforatio quomodo capienda sit, ne in Regulas Mechanicæ impingamus, perspicuè jam supra (_Annotat. 12. §. 11. seq._) dictum est. Et de hydraulico potiùs Linguæ usu, vide _Columnam_ cap. 1. §. 34. De _Buccino Parvo_ autem, cujus Iconem etiam (cap. 4. §. 1.) dat, hîc loci paulò antè allatam, sub Voce _Limbi_, hunc in modum scribit: _Linguam habet, longam admodùm, canaliculatam, ex quâ Aquam haustam exspuit: et cum graditur, elatam gerit, et incurvam ex adverso_. Alia demum etiam est Vocis _Linguæ_ acceptio, ut pro Fossili quodam, Insulæ Maltæ ferè proprio, sumatur, quod _Glossopetra_, vel _Petroglossum_, Græcè effertur; et quia _S. Paulus_ Serpentem ibi in Ignem projecit, hodièque nulli Serpentes in Insulâ istâ versari perhibentur, quod _Divus Apostolus_ facto illo indignabundus maledixerit Serpentibus reliquis omnibus, illosque fulmine Banni procul inde fugaverit; vulgaris opinio, acutos illos, glabros, bilateres lapillos, diversæ magnitudinis, ex Terrâ alba, quæ in Trochiscos formatur, natos, latioreque suâ Basi plerumque eidem infixos, LINGUAS SERPENTUM nominat; utut Viperarum Linguis tam similes sint, quàm Ovum Anseris, Cornubus Venatorum. Lapideas tamen, et alterius naturæ esse, quam osseæ, _Columna noster_ negat, in peculiari _de Glossopetris Dissertatione_. Quam, cum Caput ultimū esse voluerit Tractatûs sui de Purpurâ, tanquam Appendicem laudati Opusculi; et verò _Glossopetræ_, sive Petrefactum quid sint, sive saltem Osseum, ad Rictum dentatum Carchariæ Canis spectans, placuit Doctrinam eam, tanquam cum Purpurâ et Testaceis reliquis parum connexam, planè divellere, et sub præsentem, _de Linguâ_, Lexici hujus portiunculam, referre. Sicque suam _Autor_ Dissertationem inscribit:
 
@@ -2147,7 +2147,7 @@ as, et Carchariæ, Lamiæ, sive Canicularum, et similium dentes, Maris æstu oli
 
 Hic verò, qui nunc sequitur, est ipse Contextus Opusculi, de verbo ad verbum; cui _Columna_ Figuras has præfigit:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/034.png)
 
 _Nituntur quidam arcanis Naturæ in medium adductis omni responsione seclusâ, Linguas serpentinas, aut Glossopetras, (sic illas appellant recentiores) quia non solûm locis mari propinquis et insulis, sed etiam longè dissitis copiosè reperiri traduntur, ab ipsâ formatrice Naturâ sic genitas; atque lapideas esse: vel qui dentes esse dicunt, non Carchariæ, Lamiæ, Malthæ, aut ejusdem generis Cetaceorum, sed illis similes spontè sic ortos; quin etiam id tantùm Naturam produxisse eo loci, quod ratione materiei aptum erat ad formam illam recipiendam affirmant. Hôc argumento in dubium revocare videntur, an unquam locis illis mare fuerit, quod probatissimi antiquiores Philosophi, et Historici affirmarunt. Nos quidem dicimus, hujusmodi concretionem non esse lapideam, ex ipso aspectu, effigie rei, et totâ substantiâ: at neminem censemus tam crassâ minervâ natum, qui statim primo intuitu non affirmârit, dentes esse osseos, non lapideos. Sed præter aspectum omnia, quæ ligneam, osseam, et carneam naturam habent, ustione in carbonem priùs abeunt, quàm in calcem, aut cinerem. Ea verò, quæ tophacea, vel saxea sunt naturâ, non in carbonem, sed in calcem abire, nisi liquentur propter vitream, aut metallicam mixtionem. Cùm igitur dentes hi statim assati transeant in carbonem, et tophus adhærens minimè, clarum, erit, osseos esse dentes, non lapideos. Addenda est fibrosa intùs compactio, et porosa, et externus lævor ab internâ materiâ varius, et exacta dentium effigies Lamiarum cum ipsâ radice, quæ omnia osseam naturam declarant. Nullus quidem lapis, aut gemma, quod viderimus, lævi superficie, et figurata naturaliter reperitur, nisi Crystallinæ, et similes concretiones, quæ nitri, aut salis modo sint concreta, quarum effigies angulosæ casuales ex naturâ succi, non ad idem figurandum tendentes, ut sunt hujusmodi dentium figuræ, ad quas exactè perficiendas Næturæ conatus observatur. Nec ut de Crystallinis et nitrosis quibus evenit angulosa superficies in ipsâ humoris contractione, ita dici potest de his dentibus, atque ab initiô eadem magnitudine sic fuisse procreatos, quâ effodiuntur: nam dentibus his incrementum ex radice ipsa, non coagulatione humoris in corpus solidum, sed per foris emissionem, et vegetam naturam accessisse paulatìm videretur dicendum, quemadmodum in Animalium dentibus, cornibus, et unguibus observatur, quæ omnia ab radice, et ex auctivo excrementô magnitudinem assequuntur longo temporis intervallo intercedente. Secùs verò in lapideis, Crystallinis, et nitrosis rebus, quibus in ipsa concretione perficitur magnitudo, et effigies: et hoc dato, quod dentes hi dicantur similes, (non ex Lamiarum maxillis detritis reliquiæ, ut verè sunt) quod expressè negatur. Nec etiam unquam observatuma est, inter subterranea, et fossilia, osseâ specie individuum aliquod naturam abdidisse, quod spontè vigeret, nisi ex cadaveribus, ut sunt dentes hi, ossa alia, Testacea, et similia, quæ casu obruta reperiuntur, immemorabili tempore abscondita, ut quædam cum ambiente terrâ in lapides sint immutata. Falsum omninò est, ossa in terrâ esse genita, ut Plinius ex Theophrastô refert; non enim natura quid frustrà facit, vulgato inter Philosophos Axiomate: Dentes hi frustrà essent, non enim dentium usum habere possunt, nec Testarum fragmenta tegendi, sicuti nec ossa ullum animal fulciendi. Dentes sine maxillâ, Testacea sine Animali, ossa unica (non nisi omnia conjuncta cum ipso animali) in proprio elemento Natura nunquam fecit, quomodo in alieno nunc potuisse, et fecisse est credendum? Ossa enim ex eodem seminali excremento ortum habere simul cum animali ipsa experientia, et Natura docuit, tàm in homine, quam in aliis animalibus sanguine præditis, et ex semine initium habentibus, ac etiam quibusdam aliis; quomodo in Subterraneis terrestribus semen hoc inveniri asseritur? qua experientiâ? Hoc si daretur, et hominem spontè oriri esset observatum, vel alia Animalia, ut bos, Equus, et similia, quod quantum sit dictu abhorrendum, et contrà naturalem observationem satis patet: sicuti, quæ fuerunt à Goropio dicta de ossibus humanâ specie enormibus sub terra inventis, quæ Gigantum fuisse vana hominum ingenia credidisse asserit. Et nos addimus tempore Catharinæ Pellegrinæ nobis Aviæ in Abellino agro, cujus domina fuit, repertum sepulcrum latexitium, in quo maximi hominis cadaver osseum erat, cujus tibiæ quatuor pedum longitudinem æquabant, illorumque unicam diu servasse, veluti rem enormem, ac insignem, quod non semel domesticis, atque exteris asseruit, nobis adhuc pueris et ignaris literarum. Puteoli quoque non pauca Gigantum ossa conspici asserit Scipio Mazzella, addiditque Pomponii Læti carmina de illis, ac etiā multa de Gigantibus ab antiquis dicta in lib. Italica lingua de Puteolorum antiquitate; omittimus quæ alii, et Plinius (l. 7. c. 16.) recitant: sed addere voluimus in Siciliâ frequentissima ossa Gigantum reperiri, velui Incolæ Insulæ fuerint antiqui viri præsertim Panormi, ut testatur doctissimus, et Clarissimus Vir P. Marianus Valguarnera in lib. de Orig. et Antiquit. Panormi impresso anno 1614. in eadem civitate Panormi, in quo doctissimè agit de illorum ætate, et staturâ, sive magnitudine. Sed quid dicendum de enormissimo Gigante a Jo. Boccatio relato in cap. 68. Genealogiæ gentilium Deorum, cujus dentes adhuc in Ecclesiâ D. Annunciatæ Drepani in Sicilia extare ait, et pondere centum unciarum esse, et quod etiam vix credibile mea sententia, tota Gigantis statura ducentorum cubitorum fuisse. Quare 105. ossa, quæ reperiuntur hominis ossibus, vel alterius animalis paria, non spontè, sed olim obruta, et aliquando eadem cum ipsa terrâ ambiente postmodum in saxeam ejus loci, vel aliam naturam ejusmodi conversa. Sed ad dentes redeundo, negatur quod intra saxa, vel tophos hujusmodi dentium materiei aptitudo inveniri queat, locis præsertim aridis tophaceis, cùm talis materia excrementitia, et nutitiva potiùs ex aliquo viventi animali proficisci debeat, quam intra terram quærenda, ut suprà diximus: et sic deficiente materiâ pro ipso animali, cujus dens, vel os, aut testa sit, nec dentem, nec os, nec testam oriri posse est asserendum. Attamen permissa spontanea vegetatione, quærendum est adhuc, an dentes hi ab initiô spontè sic fuerunt geniti, vel intrà tophos paulatìm accessit magnitudo, ut fit in animalium dentibus, quorum æmulantur speciem? Si dicatur sic genitos; instabimus, fuitnè tophus ex quo extracti fuerunt, antè concretus, vel post dentium perfectionem? Si tophus sit ante genitus quæritur, eratnè locus in topho dentis illius effigie, ac magnitudine? an dens ipse sibi locum paravit? et quidem si tophus erat ante concretus, et sine cavitate, non poteratvis vegeta dentis exorientis in topho jam duro, et solido sibi locum per vim facere: et si vis inesset, scindi oportebat tophum. Et si locus erat prius in topho; respondetur non ex vegetâ naturâ dentis ipsius in topho effigiem illius excavatam, sed tophum sua natura et cavitate præcedenti formam denti præbuisse. Si verè dicatur paulatìm vegetasse, et excrevisse, negabitur eadem ratione antedicta, scilicet, quia tophi durities non cessisset virtuti vegetabili, ut reciperet signum dentis, sed potiùs scissuram perpessa fuisset: aut quod potius tophus vegetasset, uterum dentis effigie gestans, in quo humor osseus per poros penetrans, uteri cavitate repleta, per coagulationem; deinde illius effigiem accepisset; ut in lapidibus ex fluore ortum habentibus observatur. Negatur utrosque vegetasse, cùm omnium dentium, quos viderimus, basis, sive radix fracta reperiatur, non uniformi fracturâ; sed varia in omnibus. Quod argumentum non parvi faciendum, declarat non adfuisse vim vegetandi, sicuti in aliis fossilibus figuratis observatum est, quæ nunquam in illorum matrice mutilata reperiuntur: et Natura illa formatrix in his defecisse videretur, cùm semper in reliquis fossilibus genera, et species uniformes, integras nec fractas reddere soleat. Nec intra tophos casu aliquo fractas radices, aut dentes fuisse, si dicatur, est credendum; cùm potiùs esset affirmandum casu obrutos fuisse, et in ipsâ obrutione tunc ex maxillis animalium fractos decidisse, cùm anteà integri in ipsis maxillis fuissent geniti, et deinde juxta casum et allisionem mutilati. Negatur etiam intra tophos potuisse hos dentes, humoris densatione fieri, tam rationibus ante dictis, quàm etiam, quia frustra illos natura fecisset tam eleganti specie serratos, nitidos, acutos, Lamiarum dentibus pares, nec ad usum illorum aptos, cùm aliorum sententia proprium censeatur vegetabile individuum naturæ; quam, ut verius est, pars et instrumentum animalis individui sensitivi, nodum vegetantis ad usum voracitatis explendæ genitum. Ad hoc affirmandum adducimus aliam observationem, quæ à naturâ inaniter esset elaborata, nisi verè dentes, non lapides, et pars animalis demortui fuissent: variam nempè humoris electionem, ut aliam in radice dentis, aliam in dente interno, aliam in superficie dentis fecerit: variam etiam dentium formam, magnitudinem, habitum, et aptitudinem: nam alii dentes ex tophis excepti, quos habemus, magni, et latiores sunt, et trigoni ferè, et alii angustiores, minores, et alii minimi angusti, qui pyramidales, alii recti, alii pronâ parte incurvi, alii supina, alii in sinistram, alii in dexteram inclinati, alii sunt serrati exiguis dentibus, alii magnis serraturis, quod in minoribus triangulis observatur, et interioribus, alii nullis, quod in angustis Pyramidalibus, quæ omnia in Lamiarum dentibus ab Auctoribus observata reperiuntur, à Piscatoribus et Naucleris observantur. Primi ordinis dentes extra os prominent, et in anteriorem partem inclinati proni conspiciuntur: secundi ordinis recti sunt præsertim adlatera oris, ubi trigoni, et latiores: reliqui ordines in interiorem oris partem supini procumbunt. Hæc omnia, qui observârit, quod facilè pluribus conspectis dentibus erit, vera esse, quæ modò retulimus, affirmabit, et postea dentes fuisse cum maxillà genitos, non autem spontè vegetasse intra tophos dicat: quod quisque recentes Lamiæ dentes si ejusdem, aut etiam minoris magnitudinis in maxilla adhuc hærentes comparabit, ipsos eruendo et frangendo, etiam interna eadem esse substantia, materiâ et compactione inveniet: ac si nequeat habere, Imperati nostri Muséum adeat, et integras Lamiarum cum dentibus similibus observabit. Quod a item olim supra montes omnes mare fuerit, aut saltem ab hominibus tunc viventibus occupatos non solùm Sacra Scriptura Christianis id affirmat; sed aliis Aristotele, cœterisque Philosophis, Historicis, aliisque Scriptoribus idem testantibus sufficeret, itemque à Poëtis, et inter cœteros Ovidio, (l. 15. Metamorph.) qui ait:_
 
@@ -2156,15 +2156,15 @@ Esse fretum; vidi factas ex æquore terras,
 Et procul à Pelago Conchæ jacuere marinæ,  
 Et vetus inventa est in montibus anchora summis.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/035.png)
 
 _Certum est, Anchoram non potuisse vegetare, nec in montium jugis ad aliquem usum absque mari esse potuisse utilem. Id autem non modò accidisse universalis diluvii tempore, sed aliis seculis, aliis in locis mutatam tellurem, et mare, vicissimque alternasse, non minùs ex historiâ Plinii à c. 85. ad 92. lib. 2. colligi potest, sed ab aliis. Et nos oculati testes sumus in Castro vulgò dicto_, Torre della Nuntiata, _propè Stabii, ruinas quod olim Pompejanum fuisse putatur, egesto terreno solidissimo, quod taxum appellant, quasi naturale terrenum, altitudine pedum quadraginta propè mare, ad usum molendinorum ibi construendorum, inventos in imo juxta aquam ferè, nam arena erat jam reperta, carbones, et lateritia fragmenta, quæ ibi ante congestionem illius terreni dejecta fuisse est credendum, et forsan illa congestio facta fuit Vesuviani incendii tempore, quô Plinius obiit, cum anteà littus esset, nec dispari modo, mons novus Puteoli appellatur, montis specie egestio, ignis vi ex sulphurariâ dicta, loco illo dejecta: quare loca illa mutata non est dubium, possuntque sub illis multa reperiri obruta, quæ minimè vegetare potuissent, in testimonium congestionis desuper factæ longo tempore præterito. Objicitur postremo absurdissimum dictu, non esse credendum tot millia dentium, qui effossi sunt, et effodi possunt variis in locis, ex demortuis Cetaceis esse reliquias, cùm plures videantur numero hi, quàm qui ab origine mundi excidi potuissent ex maxillis universorum Cetaceorum: quasi faciliùs natura in siccis montibus singulos dentes procreare potuisset intra saxa, quàm in mari proprio elemento, et patre, sive matre rerum omnium ducentos simul dentes in maxillis innumerabilium Cetaceorum congenerum; quæ ab initio mundi usque ad diluvii tempus demortua potuissent ab æstu maris, variis in locis juxta animalium iter, dum viverent, et post demortua, juxta etiam ventorum impulsum elisa, et obtrita, limoque obvoluta cum aliis maritimis, et terrestribus rebus congeri, et deinde in sicco relicta propter recessum aquarum, in lapideam naturam aliqua cum ipso limô commutati, juxta loci aptitudinem, et limi, et succi speciem, alio verò loco etiamnum immutata reperiri, eo quod sicciori, et sabuloso sint obruta, ut in tophaceis locis et sabulosis. Apuliæ, Melitæ, et Neptuni, locis à nobis observatis. Id verum esse patet: nam in Melitensi topho simul cum dentibus hisce, sive Linguis dictis Conchæ, et Buccina, et eorum fragmenta testacea, atque etiam illarum repletiones ejusdem materiei tophaceæ observantur ac illarum impressiones; quare qui hæc omnia observârit, nostram sententiam approbare compelletur. Hoc facilè quispiam observare poterit, si ex Melitâ, vel simili loco mediocre tophum habere contenderit, in quo aliquid ex his adhæserit. Nec, ut quidam recentiores contra Philosophiæ præclarissimos scriptores ac Præceptores relictâ veritate, similes dentes, et Concharum varietates spontè intra saxa oriri amplius dicet, nisi mare eodem loco, eo temporis Intervallo constiterit, quousque suam naturam præbuerit monti, ut in eo possit oriri, et incrementum animal cum testâ, vel aliud accipere posit, non alio, quàm si in ipso mari esset genitum modo, sicuti et aquaticæ plantæ locis arte aquosis factis, vel casu solent eo loci etiam, ut in naturalibus palæstribus oriri. Nec ita natum, et enutritum poterit suam superficiem saxo, vel topho imprimere, ut in his, quæ obruta inveniuntur, sicuti nec inprimi unquam, nec enim potest Concha illa in argumentum, et exemplum allata, quæ intra saxorum cavitates, aliarumque rerum, ipsarumque testarum (in spondylorum testis observavimus externa parte, intra quandam cavitatem vix foraminulo apparente) sponte in mari, et rupibus maritimis, in quibus allidit unda oriens, quæ_ Cappa longa _dici asseritur à Goropio et aliis, vulgò_, Dattili, _à Piscatoribus, quia Dactylorum effigiem, et glandium, præseferunt; ab aliis_ Pholas, _ea ratione dicitur, quia occultè in cavernis oritur, et vivit, tamdiu incrementum capit, quousque intra cavernulam illam commodè hiare possit, alias periret; nec unquam in saxo, quo vixit, et periit, suæ formæ signum, vel striam aliquam, aut lineam reliquisse est observatum, cum nec potuerit, proptereà quod testa crescens extrema parte, qua hiat, tenerior est reliqua in omnibus testaceis, nec posset vim saxo, et non sibi ipsi inferre, ut impressio fieret saxo. Nec etiam in dictis cavernulis dimidia testa, vel pars illius, aut fragmentum tantùm spontè ortum fuit repertum, nec etiam ipsa testa integra, quæ per compressionem saxi, rimam, aut fracturæ signum passa sit: sicuti in montibus, et aliis locis extrà mare reperiuntur ferè omnes, ut vix paucæ integræ possint reperiri. Nos quidem non modò naturalium rerum ignarum, sed insanum putamus, qui frustulum, aut dimidiam testam, vel integram spontè editam eadem magnitudine ab initio, vel alio modo intra saxa sic genitam asseruerit, quæ etiam adeò cohærere saxo reperta sit, ut reperiuntur in saxis, quæ vix eximi possit, et non integra, et exempta impressionem sui relinquat, tanquam cuneum ejusdem. Non enim natura illas etiam cum nostro seculo procreare desusset, si alias procreasset, atque clarum est piscatoribus, nedum naturæ studiosis observatoribus, testas in ipso mari, quibus animal periit, illas, ingredi cancellos pro sua tutela, nec unquam testa illæ cum Cancello, aut sine, incrementum accepisse est observatum, sed contra, quod ob maris volutationem atteruntur: atque demum insanissimum, qui lapides Conchæ figuram integram, vel dimidiam, aut partem aliquam exprimentes illarum, sic vegetasse affirmaverit, cùm omnes illæ figuræ à Cadaveribus vegetantium, et obrutarum rerum originem traxisse non dubitemus. Qui verò non modò, quæ apud nos, sed quæ apud doctissimum nostrum Imperatum in suo Muséo servantur omnis generis testaceorum, aliarum rerum in lapides versa, vel repleta vario genere concretionis lapidea viderit, quin nostram, et antiquorum sententiam probaverit experientia non veremur. Lapides verò, qui spontè oriuntur figurati, nullam habent cum animalibus, vel partibus animalium, communitatem, sed propria figura, nec ita exactè reperiuntur, nec ejusdem generis ita sibi respondent, ut in supradictis rebus ex cadaveribus imaginem recipientibus. Sic etiam qui Fungi marini dicuntur lapidei, quia non ex Fungorum cadaveribus, sed propria vegetatione ortum ducunt, strias habent in superiore parte, non inferna, ut in terrestribus, et pediculo etiam ex leviore parte præditi reperiuntur, ut doctissimus Clusius l. 6. Exot. depinxit, suntque vegetabiles eodem modo, quo Coralii species porosæ à doctiss. Ferdinando Imperato l. 26. c. 3._ Madreporæ _denominatæ. Differunt, quia non ramosi, et statim in latera se expandunt, Clusius in Nilo oriri, qui petiolum habent, asseruit. Nos ex porosâ Coralii specie, et hos pyxid itos ortos proponimus, cujus iconem damus. Horum Dentium, aliarumque rerum intra candidam illam tophaceam Melitensem concretionem repertarum vires, easdem cum ipsâ terrâ Melitensi, quæ vulgò ab Empiricis circumfertur, et S. Pauli appellatur terra, esse asseritur. Caniculæ dentes allegati repentinos pavores tollere Plinius l. 31. c. 10. recitat. Rondeletius refert, dentes ab Aurificibus argento includi, quos Serpentis dentes vocant: hos è collo puerorum suspendunt mulieres, quia dentitionem juvare creduntur, ac etiam puerorum Pavores arcere. Confici etiam Dentifricia: nam etiam ignita duritiem servant; et Pulvis asperitate Dentes dealbat, illos detergendo. Bellonius verò: Lamias enim qui capiunt, ex earum Dentibus ac Maxillis magnum quæstum facere solent, quos ajunt, adversus Venena conferre: quamobrem Auro et Argento includere Vulgus eos solet. FINIS._ Quâ occasione potuissem quidem (et aliquantò forsan utiliùs) datæ _Autoris nostri de Glossopetris Dissertationi_, subjungere de simili Materiâ aliam; scilicet ea, quæ more suo, h. e. pereruditè ac curiosè disserit _Acutissimus hodie ac Celeberrimus Nicolaus Steno_, de _Canis Carchariæ_ dissecto _à Se_ Capite, Florentiæ quondam, penes Magnum Ducem Hetruriæ, annexa _Specimini Elementorum Myologiæ_, pag. 90. et seq. (edit. Amstelodamens.) ac imprimis pag. 110. usque ad 137. Sed quia Liber iste faciliùs obtineri in Bibliopoliis potest, quàm quidem _Columnæ_: ideoque insuper habito Transscriptionis labore, sufficit, _Lectori Benevolo_ digitum eò intendere; redeoque in viam, Brevis nostri _Lexici Ostracologici_ complendi.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/036.png)
 
 _Lobus_: Auricula Hominis aliàs; vel extremæ angulosæ, et segmentis velut divisæ partes Hepatis aut Pulmonis, ventriculum aut Cor ambientes. Item in Plantis, omnis Folliculus aut siliqua, quibus Natura Semen earum reposuit. _Columnæ_ nostro autem, Majores, in angulum excurrentes portiones Testæ, quâ tegitur Concha altera Anomia Striata, Τρίλοβος Eidem (cap. 15.) dicta, quòd velut _ex tribus simul junctis Testis, mediâ magis extuberante, constructa_ videatur, hâc effigie:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/015.png)
 
 _Lux_: Particulæ, Guttulævè nativi Fluoris Lucidi, copiosiùsque congregati alicubi in Testaceorum quorundam, adhuc viventium, Succo aut Carnibus. Cujusmodi Guttulas, suavi fulgore argenteo-viridi micantes in tenebris, quamsæpe Venetiis vidi in Ostreis, quæ illas, sibi diu relictæ, circa commissuram Testæ foris monstrabant, magnitudine Perlæ exiguæ; agitata verò, aut blandiùs quoque tacta, eandem agiliter retrahebant.
 
@@ -2174,7 +2174,7 @@ _Macula_: Confer, _Nota._ Maculæ, Inscriptiones Coloratæ 1. Testarum, tum fori
 
 Ac imprimis in _Maculis Testarum_, aut Corticis, quo Testa obducitur, insignis passim occurrit Varietas. Nam habentur Magnæ, Mediocres, et Parvæ; Rectæ, Curvæ, et Recticurvæ; Æquales, et Inæquales; Latæ et Strictæ; Quadrangulares, Triangulares, Rotundæ, et Irregulariores, rectè, transversim, et in obliquum positæ, e. g.: _Column._ d. Purp. cap. 3. §. 2: (Turbo Exoticus) _Maculis Obliquis, Roseo Colore variegatus tam Circa Umbilicum, quàm in reliquis Volutis_. Inordinatim item, aut parallelè dispositæ; vel etiam raditim tendentes à centro ad Circumferentiam, ut in Lepade Exoticâ variegatâ _Column._ c. 6.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/006.png)
 
 Albæ denique, flavæ, rubræ, cœrulescentes, brunæ, aureæ, Virides, lividæ, et atræ; et ex his uno aliquæ ornatæ Colorum genere; vel diverso, et variegatæ. Argentopalinus fulgor verò longè latèque non ex Concavo solum, sed Convexo etiam Testarum multarum lætè emicat, si Cortex saltem ritè priùs dimotus sit.
 
@@ -2222,11 +2222,11 @@ Cremata olim, in Usum Tincturæ, Opercula videntur. _Column._ de Purp. c. 1. §.
 
 _Orbes_: Ventriosæ Testæ Spirales Convolutiones _Column._ de Purp. cap. 7. §. 1: _Octo vel novem Orbibus definitur_ (Turbo Terrestris non descriptus.) Ex quibus aliqui Annorum numerum supputant; sed falso, teste _Eodem_, cap. 1. §. 28. ex Aristotele et Plinio: _Quibus_ (Orbibus) _totidem, quot Annos habent_: addente: _Non enim ex Orbibus, quibus claviculatim contorquentur Testæ omnes_ (intellige, Turbinatæ præsertim) _Anni carum observari debent, etc. Si Orbis nomine quamlibet orbiculatam ventricosam partem, claviculatim intortam Testarum, esse dicas._ Et hujus ipsius negativæ suæ rationem ulteriùs (§. 31. et 32.) deducit.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/008.png)
 
 Hoc verò imprimis etiam ut addam, videtur operæ precium: Convolvuntur Orbes Turbinatorum plerorumque in sinistram partem. Contrà, ex sinistrâ in dextram, in Turbine Terrestri non-descripto (ab aliis nempe) et depicto apud _Column._ de Purp. cap. 7. §. 1. ut et in altero minore _Ejusdem_, depicto ibidem, cap. 8. Confer itidem titulum, _Voluta_.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/009.png)
 
 _Orbium Anfractus_: vid. sub Lit. A.
 
@@ -2264,13 +2264,13 @@ _Rhabdus_: (ὀ ῥαβδος) Virga, Linea, Stria: unde ῥαβδωτός, virg
 
 _Rima_: 1. in aliquibus Apertura totius Testæ Strictior, e. g. in Conchâ Venereà, et Conchâ utroque latere se colligente _Col._ de Purp. c. 20: _Rimam pro Ore habet lævem_. Icon est hæc:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/023.png)
 
 2\. In Partibus Carnosis, Foramen oblongum acutangulum, ex commissurâ duorum laterum oblongorum ortum, aut strictus intercedens hiatus. _Col._ de Purp. c. 2. §. 2. _Rimam pro ore_ (habet Cochlea Iänthina) _in medio_ (Glandis carnosæ prominentis) _fœmininum ferè sexum referens, rubescente magis internâ parte_. Iconem iterum dedimus in hoc ipso Lexico sub titulo _Glandis_.
 
 _Rostrum_: 1. In Univalvibus, Productio Orificii Testæ, plûsminûs longa, recta, et repanda, angulosa, vel rotundior. _Column._ de Purp. cap. 1. §. 20. ex Plinio: _Neque_ (Muricem esse) _in angulos prodeunte Rostro, sed simplice Conchâ, utroque latere se colligente_. Rostro tamen aliquo, utut brevi et repando, Purpuræ Testam gaudere, ex Effigie, suis in locis datâ, patet affatim. Ast impossibile esse, ut illo Conchylia alia perforet, postmodùm in _Annotationis_ 12. §. 13. ostendimus. 2. In Bivalvibus Rostrum dicitur quoque Eminentia oblonga Testæ alterutrius, quâ alteri, (sociæ suæ) committitur, eique incurvatim superincumbit; e. g. in Conchis Anomiis _Columnæ_ de Purp. cap. 12. §. 5: _Omnes peculiari notâ sunt præditæ, quod Cervice prominente Rostratâ pertusâ oriuntur, quâ Turbinatorum more Aquam haurire et exspuere possunt_. Iconemque hanc _Autor_ addit:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/014.png)
 
 3\. Rostra in iisdem Bivalvibus dicuntur prætereà acutæ Cuspides aut Mucrones, quibus Limbus Conchæ Exoticæ exasperatur, descriptus â _Columnâ_ de Purp. cap. 17. §. 1.
 
@@ -2301,13 +2301,13 @@ _Stomachus_: confer _Ventriculus_.
 
 _Striæ_: Eminentiæ strictæ, sed in longum rectà aut obliquè, (per Convexum Testarum præsertim) ductæ. Confer, _Rhabdus_. Deque illis fusiùs paulò actum in _Annotat._ 10. est. Sunt videlicet magnæ, aut parvæ: eminentes, (dictæ _Exochæ_) aut compressiores. Et Eminentes quidem vel solidæ, vel fistulosæ, in Conchâ Exoticâ. _Column._ de Purp. cap. 17. §. 1. Vel latiores, aut strictiores: Læves, aut Asperæ: _Column._ de Purp. c. 1. §. 28. _Ab his dependent tuberosæ, atque parum muricatæ Striæ, Testam per longum exasperantes_. Juxta longitudinem Testarum dispositæ, ut jam dictum, vel transversim excurrentes, ut in Lepade parvâ, Myrti Morbus dictâ, et depictâ apud _Column._ c. 6. §. 2. hâc figurâ:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/007.png)
 
 laxius disposiiæ, aut densiùs, ut in Conchâ Πολυλεπτογίγγλύμῳ _Col._ c. 11. §. 3: _Externè admodùm densè Striata._ (Testa.)
 
 _Striges_: Interstitia forsan depressiora ac plana Striarum eminentium, in Conchâ alterâ Anomiâ Striatâ _Column._ de Purp. c. 15. §. 1: _Senis Striis, totidemque Strigibus in singulis lobis, quibus margines denticulatæ fiunt_. Icon est talis, ibi exstans:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/015.png)
 
 Certè non tam Strias duplicatas et fistulosas, quàm ab his distinctum quid esse, patet tum ex adducto loco _Autoris_; tum ex _Ejusdem_ etiam hoc, de Conchâ Exoticâ, cap. 17. §. 1: _Huic læves et latiores_ (Striæ) _duplo ferè sunt Strigibus_. E contrario _Wormius_ lib. 3. Mus. c. 7. p. 253. Striges habet pro Canaliculis, de Conchâ Echinatâ vel Aculeatâ sic scribens: _Notandum, quod aculei sint im Exochis tantùm, non verò in Canaliculis, (quas Striges quoque et Strigiles quidam vocant) siti._
 
@@ -2349,11 +2349,11 @@ _Verrucæ_: Eminentiæ Orbiculares, breves, obtusæ, aut _Tubercula_, (de quibus
 
 _Vertex_: Retorta aliquorsum subrotunda et strictior Testæ pars. In specie verò 1. Cardinis acutior Eminentia in Testis bivalvibus, quâ parte colligantur, aut mutuò sibi committuntur. Unde _Concha Anomia, Vertice Rostrato_, describitur ac depingitur apud _Column._ de Purp. cap. 12. hâc figurâ:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/013.png)
 
 2\. Processus corniformis anomalus, in Conchâ quàdam Exoticâ _Ejusdem_, cap. 19. §. 2. 3. Iconque ibi habetur talis:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/022.png)
 
 _Villi_: Languo muscosa, Testis aliquibus adnascens. _Col._ de Purp. c. 1. §. 30: _Non paucas habuimus Testas, villosas omnes_. Confer Tit. _Fibræ_.
 
@@ -2361,11 +2361,11 @@ _Vinculum Nerveum_: vide _Nervus_.
 
 _Umbilicus_: 1. Latior Columellæ pars, in Turbinatis, pone quam eorundem Orificium incipit, suâque tortuo sitate spirali, in Testæ intimiora se abdens, et ipsa latior Columellæ basis; quale quid imprimis conspicuum est in Testâ Turbinis Exotici, apud _Columnam_, qui cap. 3. proin Umbilicatum nominat, datâ hâc figurâ:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/003.png)
 
 nec non in Cochleâ Terrestri turbinatâ et Striatâ _Ejusdem_, de quâ cap. 9. §. 1. sic scribit: _Umbilicum ferè relinquens in Centro, et eodem Orbium Ordine striantur Orbes, etc._ Figura est talis:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/010.png)
 
 2\. Centrum, etiam concameratum, vel medium Testæ Lepadum, quoad concavam earum superficiem spectatarum. Vide _Column._ de Purp. cap. 6. §. 1.
 
@@ -2381,7 +2381,7 @@ _Volutæ_: à Volvendo, vel revolutione spirali dictæ, Volumina aliàs, Orbes, 
 
 _Zona_: cum _Fasciâ_ ferè coincidit, de quâ superiùs, sub lit. F. _Column._ de Purp. c. 18. §. 5. de Conchâ Natatili Neritode: _Zonis distinguitur flavis et cinereis_. Iconemque hanc dat:
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/021.png)
 
 Et hic esto
 
