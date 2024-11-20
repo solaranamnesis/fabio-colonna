@@ -418,17 +418,17 @@ Depinximus atque descripsimus hanc, à Nobis aliàs obiter observatam Cochleam m
 
 §\. 1. Tuberculis nigro-flaventibus, et Lineis elatis candida Testa exornatur; quæ cassa est et marmoreâ effigie, candidaque.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/005.png)
 
 §\. 2. Figura parum abest à nostratibus parvis Buccicinis; nec aliud referre ex inani Testâ exterâ postumus.
 
 # Caput 6. --- _Lepas Exotica variegata; et Lepas nova, Myrti Morbus_.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/006.png)
 
 §\. 1. Magnitudine nostrates grandiores æquat Exotica; et elegans Lepas hæc ab aliis memorata, magis cava, rotundiore ambitu, nec in angulos desinens, colore ad extremam testæ partem flavente, veluti fasciata, maculis fuscis binis per interstitia exornata, interiùs candicante Alabastritidis lapidis modo; in Umbilico verò iterum flavo et splendido colore, animalis umbram fere describente. Exteriùs verò obliquè rugosa parum, colore ex pallido candicante, Maculis radiatim nigro-flaventibus. In supernâ parte flavescit ex russo; Apexque candicat. Dono accepimus à N. V. ac Doctissimo _Francisco Peregrino_, Romæ, cum aliis etiam Rarioribus, Buccino supra-dicto, ut Cochleâ Marmoreâ, aliisque.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/007.png)
 
 §\. 2. Sed quia hujus Lepadis occasione in mentem venit aliud Lepadis genus, non descriptum, terrestre, quod Morbus est, aut Scabies, sive Impetigo Arborum et fruticum; idemque animal est ex morbo Myrti genitum, testudinatum: Hoc loco iconem et observationem addere non ingratum studiosis fore existimavimus.
 
@@ -440,7 +440,7 @@ Depinximus atque descripsimus hanc, à Nobis aliàs obiter observatam Cochleam m
 
 §\. 1. Rarior hic, et præter morem à Naturâ elaboratus, atque à nemine observatus: cujus Orbes non in sinistram partem convolvuntur, ut in omnibus Testaceis marinis ac terrestribus; sed contrario modo ex sinistrâ in dexteram Orbes in amplum os, juxta orbis proportionem, desinunt; incisuram in imo habens, Buccinorum modo, octo vel novem orbibus definitur, in imo flavicantibus, reliquis cinereis ex flavo, et in summo magis candicante novissimo.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/008.png)
 
 §\. 2. Stamine conjuncti acu videntur orbes, candidis junctis sive Lineis inter orbes micantibus, quibus depinguntur; et oculis gratiores redduntur, ob punctorum distinctionem.
 
@@ -450,13 +450,13 @@ Depinximus atque descripsimus hanc, à Nobis aliàs obiter observatam Cochleam m
 
 Est et alter, simili modo ex sinistrâ parte in dexteram convolutus, non adeò frequens, qui nitidâ testâ est, et adeò splendidâ, ut arte expolita censeatur, flavicante ex pallido cinereo, quatuor tantùm orbibus composita, oblongiore et angustiore Ore, quia sublimiùs volutæ eriguntur, et ideò oblongiore testâ est proportione, quamvis paucioribus orbibus sit constructa; iisdem locis oritur, ejusdem magnitudinis, ut icon est, tàm superior, quàm Cochlea describenda.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/009.png)
 
 # Caput 9. --- _Cochlea Terrestris Turbinata, et striata_.
 
 §\. 1. Quia in modum Turbinis producit Volutas, Turbinatam Cochleam appellare libuit. Quinque constat Anfractibus: et quia distinctiùs Orbes percurrit in longum, more Turbinum producitur testa, Umbilicum ferè relinquens in centro, et eodem orbium ordine striantur orbes perquam densè, ut elegantissima videatur. Os rotundum habet, quemadmodum orbis desinit; geritque Operculum crassum et cohleatum, ut in marinis observatur. Colore ex pallido flavicant magis, minusvè.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/010.png)
 
 §\. 2. Terrestres has Cochleas, ut ab aliis diversas, et rariore effigie, relictis aliis multis, huc intrudere, ad excitandum studiosorum animos, et addere visum fuit, qui Montes tantùm habent propinquos, Mare verò longo intervallo disjunctum, ut pulcriora quærant.
 
