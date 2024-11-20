@@ -466,7 +466,7 @@ Est et alter, simili modo ex sinistrâ parte in dexteram convolutus, non adeò f
 
 §\. 2. Differt etiam, quia unicâ tantùm Volutâ sive circuitione definitur, illâque vix conspicuâ. Maculis in cute nigris, magnis, inordinatis insignitur, et per obliquum rugis etiam vix apparentibus circà os exasperatur.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/011.png)
 
 §\. 3. Huic similem _Aldrovandus_ pro _Nerite_ suo de Testaceis volumine, tertio et quarto Loco depinxit, colore variantem: quantùm verò à Nerite Antiquorum distet, jam aliàs diximus, tàm brevem crassamque testam natare minimè posse; nec illum observasse censemus.
 
@@ -480,7 +480,7 @@ Est et alter, simili modo ex sinistrâ parte in dexteram convolutus, non adeò f
 
 *) _lib. 9. cap. 33._
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/012.png)
 
 §\. 3. Differt Cervice ad latum obliquè dependente: quod quamvis aliis testis etiam sit commune, quia hujus longiùs à connexu abest, planâ remanente inter cervicem et cardines testâ veluti recisâ, et complanatâ, Lineis multis undosis sculptâ; non parum ab aliis evariat: crassa insuper est respectu molis testa, externè admodum densè striata, ac etiam obliquis densioribus rugis exasperata, ut imbricata etiam dici possit. Internâ parte circâ os tantùm brevibus striis connectitur dentium vice; reliquâ cavâ, levi.
 
@@ -496,11 +496,11 @@ Est et alter, simili modo ex sinistrâ parte in dexteram convolutus, non adeò f
 
 §\. 3. Hujus igitur Effigies lævis, depressa, parùm oblonga, ab aliis Conchis in hoc præcipuè differens, quod altera Conchæ pars oblongior est, collum, cervicemque totam, quæ oblongior est, et rotundior, atque acutior, prominetque, suprà cervicem alterius diffundit, ut infrà illius collum altera cervix connectatur. Concha parva est, candida, tenuis, obliquè parum additamentis rugosa, sed non ob id aspera, sed levis.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/013.png)
 
 §\. 4. Repletam invenimus candidâ _tophaceâ Concretione_, quâ totus ille clivosus locus, sive collis, est editus, qui non magis terrenâ concretione tophaceâ, quàm variarum concharum fragmentis, et integis etiam innumeris, est compactus, hanc et alias in vallecula illâ, sive fossâ quâdam, parum subtùs Ecclesiam D. Mariæ de Andriâ, extra urbem milliari sitâ, excepimus: illic enim, ob gratias à Sanctissimâ DEI Genitrice acceptas referendas, fuimus, sicuti et alii magnâ cum frequentiâ vota solventes, concurrunt quotidie. Ecclesia quidem illa magnis donis et Miraculorum Signis ornatur; nec non sumtuosâ Structurâ, ipsa Ecclesia et Monasterium.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/014.png)
 
 §\. 5. Hujus similem apud doctissimum _Imperatum_ nostrum in suo Muséo, rerum omnium Naturæ satis copioso Thesauro, observavimus; quæ margine erat parum undosa, et longiore Conchæ parte canalem vix conspicuum in dorso, altero verò medio, contrario modo extuberante: omnesque peculiari notâ sunt præditæ, quod cervice prominente rostratâ, pertusâ, oriuntur, quâ turbinatorum more Aquam haurire et exspuere, sylvestris Lepadis, aut Auris marinæ modo, possunt. Icon magnitudinem æquat. Huic _similem_ majorem multò, _Lapideam_, depinximus in _Prima parte_, nomine _Conchæ gibbosæ_.
 
@@ -518,7 +518,7 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 §\. 1. Ex eodem genere et hæc videtur, major Concha et crassior; cujus obesa Valva minor est, atque tribus simul junctis Testis, mediâ magis extuberante, constructa videtur, et senis striis, totidemque strigibus in singulis Lobis, quibus margines denticulatæ fiunt, insecta; præterquàm pars interjecta inter Lobos, quæ rectâ lineâ marginem definit. Alterâ parte, quâ valvæ in caput prominet, medium habet Lobum depressiorem, et oblongiorem, reliquis à latere brevioribus, et elatis, eodemque modo striatis; quâ parte tota Concha expansis alis aviculam incurvam repræsentare videtur. Conchæ cortex, castaneo colore fuit, ut ex fragmento, quod in cervice adhærebat, observavimus.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/015.png)
 
 §\. 2. Lapideam quidem naturam interior pars, cujus effigiem damus, adepta erat, colore ob vetustatem flavicante; intus verò, candicante. Et hæc ex ditissimo naturæ promptuario _Imperati_.
 
@@ -536,11 +536,11 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 §\. 1. Morosi videntur Nobis quidam, qui has et similes Concretiones negant, ex Testaceorum internâ cavâ parte sibi effigiem parare, atque Naturam contendunt, propriis initiis Animantibus aut Vegetantibus, Lapideas hasce aut consimiles perficere Conchas et Buccinas, Cochleasque, atque innumera alia.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/016.png)
 
 §\. 2. Non negamus, quin multa alia sint, propriâ formâ sic concreta; sed nullam illa habent cum cæteris rebus naturalibus, quæ vixerint, communitatem, nec aliquid simile rectè, aut perfectè referunt, ut sunt, quæ locum corruptæ rei replent.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/017.png)
 
 §\. 3. Inter alia et hæc testimonium perhibebit veritatis, rarissima Conchæ concretio, quæ non externam, sed internam tantùm partem refert, Lineis obliquè ductis gradatim, ut in Testæ internâ parte fuerant, et exiguas Cervices, Lieamque Cardinum et marginis. Tota terreâ crustâ, et veluti sordida, colore ochræ foris est; intùs verò prope marginem, ab alterâ ex Valvis, quæ forsan perforata, aut fracta fuit, origo stillati et ingressi humoris apparet, in Crystallini lapidis Speciem, Electri, aut Chrysolithi colore, atque in plures angulosas connexas pyramides concreti. Quod si humor ille vegetam habuisset naturam, et extremam partem splendidam, et propriâ effigie insignitam efformasset; non sordidam, ac alienam Conchæ induisset, ut manifestè apparet.
 
@@ -552,7 +552,7 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 §\. 1. Peculiare huic rariori, quod præter Strias, aliis Conchis communes, quæ huic læves et latiores duplò ferè sunt stigibus; striæ ipsæ iterum ab angusto, et elato limbo, itùs fistuloso, supra illarum dorsum decurrente in alias tenues novenas strias efformantur, et loco strigium esse videntur: et Conchæ margo extrema Rostrata efficitur singulis novenis striis, quæ internâ parte cavæ apparent.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/018.png)
 
 §\. 2. Conchæ Cervix magna est, et crassa, ut clausa Testa se tangat cum alterius valvæ cervice, mediumque locum occupat conchæ, quæ circà illas in latus ampla fit obliquè, ut diametrum æquet, habeatque ternas connexiones pyxidatas; quarum minima, quæ proximior majori limbo, sive rostro est, media major, tertia longior: In imâ omnium strige, rugosa obliquè Lineis apparet concha.
 
@@ -562,7 +562,7 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 §\. 1. Sitnè Concha hæc, vel potiùs Cochleæ natura, sive suâ specie ita exigua, vel potiùs infans adhuc et tenella, dubitamus. At quod à Persicis differat, asserere possumus. Concha est, unguis majoris digiti magnitudine, unguis tenuitate, sed fragilior, colore ex pullo candicans, amplo admodum hiatu, ut infrà se turbinem colligat. Caret illo Lunato sinu, circa columellæ summum, quo Lingva exseri possit, ut in congeneribus.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/019.png)
 
 §\. 2. Animal intus habet magnum: sed quia non recens, sed exsiccatum in Ipsâ Concha vidimus, non aliud, quàm quod triplici veluti Loliginis ossiculo munitum esse observavimus; quorum aliquod Operculum, et carni annexum esse, non dubitamus.
 
@@ -570,11 +570,11 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 §\. 4. Hanc _Imperatus_ noster nobis dono dedit; nec non et alios congeneres exoticas communicavit; de quibus, quia locus est, agemus, notas tantùm varietatis addentes, cum ex illarum picturâ satis Testæ differentia colligi possit.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/020.png)
 
 §\. 5. Prima et major, longa est semipedem, et unciam, lata palmū, colore ex cinereo flavicans, intus pallida, nitida, circa columellam externè rugosa, aspera, et magis flavicans, turbine infrà basim posito, ut vetustate minùs semper promineat, et includatur. Natat in Aquâ, ut congeneres, additoque pondere circa interiora, lata magis pars altera opposita, velificare videtur; ventoque impelli potest. Altera magis rugosa, foris colore ex fulvo ad castaneum vergente, intus candicat; sed Zonis distinguitur flavis et cinereis, turbine prominente, ex canali, distinguente Volutas duas, quibus testa contorquetur. Natat, ut superior: minor verò duplò, sed crassiore Testâ. Lunatæ sunt in extremo columellæ, ad Linguæ usum.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/021.png)
 
 # Caput 19. --- _Concha Exotica Vertice muricatim intorto_.
 
@@ -582,7 +582,7 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 §\. 2. Hanc mutilam, unâ tantùm valvâ imâ, dono accepimus Romæ à _Fabricio Christiano_, reconditarum rerum Viro curioso, ac Argentariæ officinæ domino, inter alia plura, et perpulchra Testacea. Hujus similes nostro mari haud conspicuas se præbent: quare Exoticam Concham, sicuti alias, esse non dubitamus: ac à _Plinio_ forsitan illis verbis comprehensa, (_Vertice muricatìm intorto, vel ad Buccinam recurvis_,) cervice quidem retorquetur, ac si non Concha, sed Cochlea fieri deberet.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/022.png)
 
 §\. 3. Nec aliud dicere possumus de eâ, nisi quod crassâ sit Testâ, et albicante, ac etiam ob vetustatem exesâ; in cujus superficie rubri Coralii corniculatum cespitem, latâ ac tenui radice, veluti si cera liquefacta rubra superinducta esset, Testæ superficiei, natura excitavit; vel si Coralii materies initiò molle quid, ac muscosum viscidum initium habuisset, ut opinamur.
 
@@ -590,9 +590,13 @@ Differt hæc à superiore congenere colore ad pallidum inclinante, quæ etiam re
 
 Parva est, unciam longa: angusta Testa, lævis; obliquè circa medium extuberans, ac si anulo cincta esset: rimam pro ore habet lævem. Crassa Testa est, candida, diaphana, splendens: et cum sit exotica, nihil aliud referre possumus, nisi varietatem, quâ naturæ solertiam admirandam proponimus. Animal exiguum: nec profundè contineri in ipsâ Testâ, dijudicamus ex _Imperati Muséo_.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/023.png)
+
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/024.png)
 
 Finis.
+
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/025.png)
 
 ---
 
@@ -737,7 +741,7 @@ id citra Tralationem etiam dicere poterat, respectu Imaginis Auroræ, purpureo s
 
 _Prima_ nimirum, Signo ☉ notata, Amplitudinem habet, cujus diameter Unciarum 4 1/2: Altitudinem verò 3 1/2 Unc. circiter.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/026.png)
 
 _Secunda_, Signo ☾ notata, amplitudine (diametraliter) æquat Uncias 3. Altitudine Uncias 2 1/2.
 
@@ -894,7 +898,7 @@ _Cœruleo_ vel Cyaneo, _et Nigro, Subcœruleus_, vel Nigro propè, propiùs, aut
 
 §\. 10. Cujusmodi Differentias _Kircherus_ etiam (_libr. Mund. Subt. Sect. 1. cap. 5. pag. 14._) strictim tetigit, easque tali circiter Schemate, à me aliquantulùm distinctius hîc, pleniùsque exhibito, adumbrat; et Dispositionem istam sine dubio ex Opticâ _Fr. Aguilonii_ (lib. 1. propos. 39. pag. 40.) desumsit, ut conferre Autorem utrumque volentibus, patebit.
 
-[Figura --- _a._: Incarnatus. _b._: Viridis. _c._: Subruber, brunus. _d._: Cinerascens. _e._: Fuscus. _f._: Cinereus.](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura --- _a._: Incarnatus. _b._: Viridis. _c._: Subruber, brunus. _d._: Cinerascens. _e._: Fuscus. _f._: Cinereus.](https://cdn.solaranamnesis.com/FabioColonna/purpura/027.png)
 
 §\. 11. Interim tempus est, ut directè nunc, stratâque Ordinis viâ meliore paulùm, aut commodiore, quàm quæ apud _Columnam_, cœterà _doctissimum_, habetur, ad declarandas _Purpuræ Differentias_ pergamus. Quæ mihi videntur duplices:
 
@@ -1298,13 +1302,9 @@ ac hodienum Mensis inferri ab Italis suis, idem _Columna_ l. d. §. 36. 37. memo
 
 §\. 10. Regio capitis illa, quæ proximè post Cornicula est, _Cervix aut Dorsum_ Carnis appellatur: quam maculis diversicoloribus variegatam, et exiguis luteis præsertim ornatam, notat in præsenti §. 33. Noster _Autor_.
 
-§\. 11. _Linguam Idem_ (§. 34.) describit quidem, et no-
-tanter ait, illâ Aquam fistulæ modo exspuere, _Se Vidisse_: in
-Icone tamen non expressit; et concipienda forsitan talis erit,
-qualem cæteroquin (servatâ proportione Animalculi) ex-
-hibet cap 4. in hâc Parvi Buccini Figurâ:
+§\. 11. _Linguam Idem_ (§. 34.) describit quidem, et notanter ait, illâ Aquam fistulæ modo exspuere, _Se Vidisse_: in Icone tamen non expressit; et concipienda forsitan talis erit, qualem cæteroquin (servatâ proportione Animalculi) exhibet cap 4. in hâc Parvi Buccini Figurâ:
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/004.png)
 
 In Purpurâ sanè _Longitudo_ Linguæ planè Digitalis tribuitur ex _Plinio_, lib. 9. c. 36. dum ait: _Lingua Purpuræ, digitali longitudine, quâ pascitur, perforando reliqua Conchylia._ Unde Proverbium: Purpurâ voracior.
 
@@ -1404,7 +1404,7 @@ In Purpurâ sanè _Longitudo_ Linguæ planè Digitalis tribuitur ex _Plinio_, li
 
 §\. 2. Quapropter misso Secundo, Tertio, et sequentibus Capitibus, ad _Duodecimum_ ut strictim me convertam, occasionem mihi dant Verba Capitis ejus terminalia hæc, postquam nempe de Conchis Anomiis rarioribus, Vertice Rostrato, actum fuerat: _Huic similem, majorem multò, Lapideam, depinximus in Primâ Parte, nomine Conchæ Gibbosæ_. Per hanc Primam Partem verò intelligit _Observationes Aquatilium et Terrestrium Rariorum_, ubi Concham istam Gibbosam Lapideam describit, suâ manu æri incisam; iconemque ejus affert hanc, quam Ligno sculpi dein procuravi:
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/028.png)
 
 Verba ipsa verò piget, quod simul transscribi non curaverim, vel quod transscripta perdiderim.
 
@@ -1468,7 +1468,9 @@ non-Viventia:
 
 _Testacea Petrefacta_: de quibus vid: _Colum. c. 16. §. 5. Nuclei Lapidei_, Testularum Concavo sub Terris conformes facti; falsòque pro Ipsis Testis petrefactis habiti. Qualis est apud _Col. c. 16. Concha Fasciata, Gemmeâ concretione repleta_: hâc figurâ:
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/016.png)
+
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/017.png)
 
 2\. Propriè: vid. TAB. 2.
 
@@ -1490,7 +1492,7 @@ distinctim, Generis vel
 
 Incerti aut dubii: qualis videtur esse _Concha Exotica, Vertice muricatim_ (intellige turbinatim) _intorto, Column. de Purp. cap. 19._ Ex contextu enim _Autoris_ præcisè non liquet, Univalvibusnè, an Bivalvibus annumeranda sit?
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/022.png)
 
 Certi ac determinati: de quo vid. TAB. 3.
 
@@ -1524,11 +1526,11 @@ veræ, et κατ ᾽ ἐξοχὴν _Lepades_ (speciei multiplicis) partim
 
 Mediocres: e. g. _Lepas Exotica variegata Column._ de Purp. c. 6.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/006.png)
 
 Parvæ, e. g. _Lepas nova, Myrti Morbus: ibid._
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/007.png)
 
 agriæ vel sylvestres: _Aures Marinæ_: Fulgore
 
@@ -1554,7 +1556,7 @@ _Lepades_
 
 _Concha Natatilis_ Νηριτώδης _minima, Persicæ dictæ Recentiorum congener, Column. de Purp. c. 18._
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/019.png)
 
 Strictioris: vel
 
@@ -1566,7 +1568,7 @@ _iisdē Analoga_ quædā, et Turbinatis accedentia vel
 
 planè non: e. g. _Concha utroque latere se colli-exotica, Column. c. 20._
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/023.png)
 
 quadantenus, h. e. ductæ intùs Spiræ vestigium foris aliquod prodentia: _Conchæ et Conchulæ quasi Conchæ Veneris_, (plerumque albæ.)
 
@@ -1580,7 +1582,7 @@ Turbinata distribuenda videntur summè, in
 
 Ventre carentia: qualis est præsens _Voluta, utrobivis aperta_ (lapidea potiùs) _nullibi aliàs descripta_:
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/029.png)
 
 Et Ventriosa: quorum aliqua Turbinem suum
 
@@ -1680,7 +1682,7 @@ Rugarum: _Cochleæ Rugosæ_.
 
 Striarum: e. g. _Cochlea Marina Exotica marmorea Columnæ, de Purp. c. 10._
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/011.png)
 
 Æquali vel glabrâ.
 
@@ -1704,13 +1706,13 @@ Rugarum:
 
 Striarum: e. g. _Cochlea Terrestris Turbinata et Striata Column. c. 9._
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/010.png)
 
 Æquales et glabræ.
 
 extraordinario, aut minùs in reliquis usitato, Elatiore nimirum, et velut in Pinnas vel Aures amplè laxato: qualis est _Cochlea Iänthina_, apud _Columnam de Purp. cap. 2._ descripta, utpote cujus Testa tenuis, tribus Volutis Constans, Limbo circa Umbilicum effertur admodùm, quod in aliis Cochleis non observatur.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/002.png)
 
 ### Tabula 8.
 
@@ -1726,7 +1728,7 @@ Conicam, Apice Turbinis constituto in
 
 Summo, (vel stricto Testæ acumine) e. g. _Turo Exoticus Umbilicatus Column. de Purp. c. 3._
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/003.png)
 
 Imo, vel Basi: _Conchæ multæ Persicæ_, pulcrè maculatæ, Volutæ Spirâ totâ in planam plusminùs basin collectâ.
 
@@ -1742,13 +1744,13 @@ Muricata:
 
 Verrucosa: quale est _Buccinum Exoticum parvum Columnæ, de Purp. c. 5._
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/005.png)
 
 Rugosa.
 
 Striata: quorsum fortè spectabit _Buccinum parvum nostras_, (h. e. Neapolitanum) _Columnæ, c. 4._ dictum.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/004.png)
 
 Contrario modo, in
 
@@ -1760,7 +1762,7 @@ _Major, cap. 7._
 
 _Et Minor: ibidem._
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/030.png)
 
 Cylindricam: vid. TAB. 9.
 
@@ -1776,7 +1778,7 @@ Inæqualis
 
 Rugoso-Striatæ: e. g. _Concha Natatilis_ Νηριτώδης _Column. de Purp. c. 18. §. 5._
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/020.png)
 
 Striatæ.
 
@@ -1784,7 +1786,7 @@ Striatæ.
 
 distinctiùs emisso: e. g. _Concha Natatilis_ Νηριτώδης _altera Column. l. d._
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/021.png)
 
 ### Tabula 10.
 
@@ -1820,7 +1822,7 @@ Simpliciter: _Bivalvia Muricata_.
 
 Mixtim: _Muricato-Striata; qualis est Concha Exotica, margine in Mucronem emissa, Column. de Purp. c. 17._
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/018.png)
 
 Verrucis:
 
@@ -1840,7 +1842,7 @@ fractis, et Imbricem velut constituentibus vel
 
 Simplicem, e. g. _in Conchâ Striatâ lapideâ imbricatâ Specûs Baumannicæ_; cujus, Saxeo frustulo adhuc immersæ, est hæc figura:
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/031.png)
 
 duplicem:
 
@@ -1848,7 +1850,7 @@ triplicem.
 
 quadruplicem: qualis esse videtur _Concha_ Πολυλεπτογίγγλυμος _Column de Purp. cap. 11._
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/012.png)
 
 ε\.
 
@@ -1882,13 +1884,13 @@ certò talis
 
 major: talis nempe:
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/015.png)
 
 _minores similes_, Avellanæ nucis magnitudine: _vid. Column. de Purp. cap. 15. §. 3. seq._
 
 incerti utcunque ordinis, _Concha Lapidea Gibbosa Columnæ, Observ. Aquatil. et Terrestr. pag. 52. et cap. 12. de Purp. §. 5._ Incertum enim, ex effigie, an ad Univalvia, vel Bivalvia, (quod tamen verisimilius) pertineat.
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/028.png)
 
 β\.
 
@@ -1900,7 +1902,7 @@ Undoso-Rugosa: _Concha Anomia altera, vel Neptunia major imbricata, Column. c. 1
 
 Rugoso-Striata: _Concha rarior Anomia, vertice rostrato Column. c. 12._
 
-[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/013.png)
 
 β\.
 
