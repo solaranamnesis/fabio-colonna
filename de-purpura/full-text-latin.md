@@ -343,7 +343,7 @@ Et _Isidorus_* refert: _Murex Cochlea est Maris, dicta ab acumine et asperitate,
 
 *) _lib. 9. cap. 36. et inde._
 
-[_Murex trunculus._]()
+[_Murex trunculus._](https://cdn.solaranamnesis.com/FabioColonna/purpura/001.png)
 
 §\. 27. Testa hæc parva est, Regiæ Nucis, adhuc carnoso regmine obducta, magnitudine, (quanquam ejusdem generis inanes Testas quadruplo majores habeamus, atque maximas asperiores) à vulgari Purpurâ _Rondelitii_, quæ Neapoli Sconciglio appellatur, in his differens; Cortice quippe rugosiore, colore fusco, aut cinericeo, veluti Limo obducto, quandoque flavicante, et Fasciis distincta oblique purpurascentibus, Turbinis effigie oblongiore, ac etiam angustiore, eò quod non sit ita ventricosa: Aculeis illis, sive Muricibus longis, caret; verùm illorum vice brevibus et crassioribus horret Tuberculis, quo etiam modo & reliquæ Testæ supradictæ _Rondelitii_ Purpuræ non rarò inveniuntur. Non enim omnes illius generis Testæ longioribus Clavis horridæ observantur; sed brevibus admodùm Tuberculis, ut in Nostrâ propositâ.
 
