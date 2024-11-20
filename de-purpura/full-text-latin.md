@@ -386,7 +386,7 @@ Depinximus atque descripsimus hanc, à Nobis aliàs obiter observatam Cochleam m
 
 §\. 2. Abomnibus Cochlearum Terrestrium et Maritimarum Animalibus reliquis, quas hucusque vidimus, hujus Animal valdè differt. Huic Penis arrecti facies est, glandem habens, in cujus extremo Fabam exprimit, rimam pro ore in medio, fœmininum ferè Sexum referens, rubescente magis internâ parte, cum reliquum Animal ex obsoletâ cœruleâ Purpurâ candicet: circà medium utrimque Appendices habet binas, quarum altera exterior major; earumque acies magis saturo colore purpurascunt.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/002.png)
 
 §\. 3. Ima pars Animalis propè testam rugosa est, et denique limbosa, ut in congeneribus; non tàm oblonga, nec acuta, sed rotundior; sub quâ copiosam, extuberantem satis, atque veluti cartilagineam Spumam vitream fundebant omnes, non secùs, ac aquâ diluto sapone multo, et concussâ, atque paleæ vel alterius rei exiguâ fistulâ intinctâ, et inflatâ, paulatim evenit, ut puerorum mos est Neapoli; quæ Sphærulæ veluti vitreæ inflantur, et denique à fistulâ dimittuntur ex fenestris. Jocum non jucundum!
 
@@ -394,7 +394,7 @@ Depinximus atque descripsimus hanc, à Nobis aliàs obiter observatam Cochleam m
 
 # Caput 3. --- _Turbo Exoticus Umbilicatus_.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/003.png)
 
 §\. 1. Hunc Romæ apud quendam industrium hominem cum aliis non negligendis testis vidimus, atque raritate allecti, iconem delineavimus, notasque addidimus. Differt ab aliis Recentiorum, et à me descriptis, quod obtusus sit cacumine, circa medium tenuior; deindè æneæ nolæ effigie in latitudinem se diffundens, atque, quod præcipuum huic est, in medio Umbilicatus.
 
@@ -404,7 +404,7 @@ Depinximus atque descripsimus hanc, à Nobis aliàs obiter observatam Cochleam m
 
 # Caput 4. --- _Buccinum parvum nostras, cum Animali_.
 
-[Figura]()
+[Figura](https://cdn.solaranamnesis.com/FabioColonna/purpura/004.png)
 
 §\. 1. Buccinum hoc frequentissimum in nostris scopulis littoralibus Neapoli, et in Foro Piscatorio; nam esculentum est, atque cibo gratum, facilisque digestionis. Hujus Animal magnum est respectu Testæ; Caro ex flavo albicat; Corpus variegatum obscuris micis purpureis, et infernè parum ad cœruleum tendens; Limbo, ut Cochleæ, graditur lato, in extremâ posteriore parte bisulco, veluti insectum, caudato. Cervix crassa est, lata, in cujus lateribus Cornicula, ut in Purpurâ diximus, in medio veluti resecta; in quibus oculi eodem illo modo insunt, atque natura: Linguam habet longam admodùm, canaliculatam, ex quâ Aquam haustam exspuit: et cum graditur, elatam gerit, et incurvam ex adverso. Convolvitur confestim quoquo versu, et supinè cum impetu quodam, inter alia congenera manens in catino reposita, et vivens, ignoramus an præ timore contactûs aliorum.
 
