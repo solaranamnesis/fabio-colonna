@@ -790,7 +790,9 @@ Et ob hanc revolutæ in spiram ventriositatis similitudinē pro in aliquæ aliæ
 
 --- --- _humeros innato Murice tectum_  
 _Cœruleum Tritona vocat, Conchaque sonanti_  
-_Inspirare jubet._ --- --- et versum hunc _Virgilii_ ex 6. Æn. adducit:
+_Inspirare jubet._ --- --- et versum hunc
+
+_Virgilii_ ex 6. Æn. adducit:
 
 _Sed tum fortè cavâ dum personat æquora Conchâ._  
 
