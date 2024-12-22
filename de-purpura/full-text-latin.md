@@ -347,7 +347,7 @@ Et _Isidorus_* refert: _Murex Cochlea est Maris, dicta ab acumine et asperitate,
 
 §\. 27. Testa hæc parva est, Regiæ Nucis, adhuc carnoso regmine obducta, magnitudine, (quanquam ejusdem generis inanes Testas quadruplo majores habeamus, atque maximas asperiores) à vulgari Purpurâ _Rondelitii_, quæ Neapoli Sconciglio appellatur, in his differens; Cortice quippe rugosiore, colore fusco, aut cinericeo, veluti Limo obducto, quandoque flavicante, et Fasciis distincta oblique purpurascentibus, Turbinis effigie oblongiore, ac etiam angustiore, eò quod non sit ita ventricosa: Aculeis illis, sive Muricibus longis, caret; verùm illorum vice brevibus et crassioribus horret Tuberculis, quo etiam modo et reliquæ Testæ supradictæ _Rondelitii_ Purpuræ non rarò inveniuntur. Non enim omnes illius generis Testæ longioribus Clavis horridæ observantur; sed brevibus admodùm Tuberculis, ut in Nostrâ propositâ.
 
-§\. 28. Differt etiam, quia bevi admodùm tubulo, vel Canali, oris pars superior definiatur, ut in Buccino, sed circa columellæ partem aspero, et auriculato vel umbilicato, à tribus vel quatuor prominentiis, quæ anteà Tubuli sive Canales, ex quâ Lingua ad usum proferebatur, fuére. Ab his dependent tuberosæ, atque parùm muricatæ Striæ, Testam per longum exasperantes, ut in extremâ oris margine, quâ Testæ os definitur, observatur: quibus signis illius Annos numerari posse censemus; quamvis Orbes _Aristoteles_, et illum sequutus _Plinius_,* velint esse, cum dixit: _Patet per Orbes, quibus totidem, quot annos habent_, etc. Non enim ex _Orbibus_, quibus claviculatim contorquentur Testæ omnes, Anni earum observari debent; cùm Nos totidem Orbes, et quandoque plures, habere parvas et exiguas ejusdem generis Testas, quos maximas habere, observavimus in plerisque Turbinatorum generibus, si Orbis nomine quamlibet orbiculatam ventricosam partem, claviculatim intortam Testarum, esse dicas, ut Græcè legitur, καὶ καθ ᾽ ἕκαστον ἐνιαυτὸν φαρενά ἐστι ἡ ἄυξησις τοῖς διαστήμασι, τοῖς ἐν τῷ ὀστράκῳ τῆς ἕλικος. Et Latinè: _Et in singulos Annos manifestum est Incrementum Distinctionibus illis, in Testaceo Volutarum_.
+§\. 28. Differt etiam, quia bevi admodùm tubulo, vel Canali, oris pars superior definiatur, ut in Buccino, sed circa columellæ partem aspero, et auriculato vel umbilicato, à tribus vel quatuor prominentiis, quæ anteà Tubuli sive Canales, ex quâ Lingua ad usum proferebatur, fuére. Ab his dependent tuberosæ, atque parùm muricatæ Striæ, Testam per longum exasperantes, ut in extremâ oris margine, quâ Testæ os definitur, observatur: quibus signis illius Annos numerari posse censemus; quamvis Orbes _Aristoteles_, et illum sequutus _Plinius_,* velint esse, cum dixit: _Patet per Orbes, quibus totidem, quot annos habent_, etc. Non enim ex _Orbibus_, quibus claviculatim contorquentur Testæ omnes, Anni earum observari debent; cùm Nos totidem Orbes, et quandoque plures, habere parvas et exiguas ejusdem generis Testas, quos maximas habere, observavimus in plerisque Turbinatorum generibus, si Orbis nomine quamlibet orbiculatam ventricosam partem, claviculatim intortam Testarum, esse dicas, ut Græcè legitur, καὶ καθ' ἕκαστον ἐνιαυτὸν φαρενά ἐστι ἡ ἄυξησις τοῖς διαστήμασι, τοῖς ἐν τῷ ὀστράκῳ τῆς ἕλικος. Et Latinè: _Et in singulos Annos manifestum est Incrementum Distinctionibus illis, in Testaceo Volutarum_.
 
 *) _lib. 9. cap. 36._
 
@@ -644,7 +644,7 @@ _in specie_, pro muricatâ, (h. e. aculeatâ) illâ marinâ Cochleâ; Tincturæ 
 
 Atque iterum dupliciter:
 
-_vel pro Toto isto Animali_, Testâ suâ aculeatâ vestito, gerenteque suo Faucibus preciosum illum Cruorem, quo Lanæ et Serica, aut inde paratæ Regum et Senatorum Vestes imbuebantur: Cujusmodi in specie dictam _Purpuram_ Autor, tùm hîc, tùm inferiùs (§. 24.) ait, nunc _Muricem_, nunc _Conchylium_ fuisse appellatum. _Muricem_ quidem per Tropum, Partis pro Toto; Murices enim propriè sunt Cuspides vel Eminentiæ aculeatæ duræ, quibus Testacea multa, ac inter illa Purpuræ, forinsecus armantur: _Conchylium_ verò κατ ᾽ ἐξοχὴν, quod Purpura videlicet sit Concharum aut Testaceorum quasi omnium Regina. Quibus Nominibus (h. e. Muricis et Conchylii) iterum tamen subsunt Ambiguitates aliquæ, ab ipsomet _Columnâ_ perspicuè sat discussæ, in præsentis cap. 1. §. 8, 9, 10, 14 et 20.
+_vel pro Toto isto Animali_, Testâ suâ aculeatâ vestito, gerenteque suo Faucibus preciosum illum Cruorem, quo Lanæ et Serica, aut inde paratæ Regum et Senatorum Vestes imbuebantur: Cujusmodi in specie dictam _Purpuram_ Autor, tùm hîc, tùm inferiùs (§. 24.) ait, nunc _Muricem_, nunc _Conchylium_ fuisse appellatum. _Muricem_ quidem per Tropum, Partis pro Toto; Murices enim propriè sunt Cuspides vel Eminentiæ aculeatæ duræ, quibus Testacea multa, ac inter illa Purpuræ, forinsecus armantur: _Conchylium_ verò κατ' ἐξοχὴν, quod Purpura videlicet sit Concharum aut Testaceorum quasi omnium Regina. Quibus Nominibus (h. e. Muricis et Conchylii) iterum tamen subsunt Ambiguitates aliquæ, ab ipsomet _Columnâ_ perspicuè sat discussæ, in præsentis cap. 1. §. 8, 9, 10, 14 et 20.
 
 _vel pro Succo præsertim aut Sanguine Animalculi jam-dicti_, Tincturæ Regalis promocondo.
 
@@ -729,7 +729,7 @@ id citra Tralationem etiam dicere poterat, respectu Imaginis Auroræ, purpureo s
 
 §\. 16. _Aliæ_ enim é contrario insuper ex Glebâ quidem etiam, sed siccâ penitus, nec unquam subjectâ Figuli manibus, paratæ: quam nimirum Natura ipsa subtùs in Molem aut Terram rubram, ope Subterraneorum Ignium, priùs coxerat, ut _Torno dein subjici_, inque Ollas, Urceos, ac Pateras per industriam humanam formari possent, suffragante _Johanne de Laet_, qui lib. 2. Gemm. et Lapidibus, cap. 10. ex _Gesnero_, hæc profert: _Plurii_, inquiens, _Pagus est Rhætorum egregius, ultra Alpes proximè Clavennam oppidum, Lacui Lario (quem Comensem hodie vocant) vicinum, in monte proximo effossi lapides quidam pulli coloris et molliusculi, ad lebetës et varia vasa tornantur: et inde in diversas Italiæ, vicinasque Regiones exportantur. Jo. Augustinus Pantheus Chemista, hunc Lapidem Lebetum vocat, et ni fallor, alio nomine Petram Columbinam, nescio quam ob causam. In Siphno (inquit Plinius lib. 36. c. 22.) Lapis est, qui cavatur, tornaturque in vasa, coquendis cibis utilia, vel ad esculentorum usus: quod et in Comensi Italiæ lapide accidere scimus_, etc. _Talia_ item _sunt apud Chattos Saxa_, (pergit Autor) _in fusco cinericea, in quorum formas quodvis metallum liquidum funditur. Hoc genus in Siphno, et in Italia circa Comum excavatur, tornaturque in vasa coquendis cibis utilia, quæ circumdantur circulis ferreis, etc._ Ex quibus abundè patet, _Tornatiles Urnas_ has, cum _Fictilibus_ istis, de quibus in præcedenti Paragrapho, non esse confundendas.
 
-§\. 17. Atque easdem _Fictiles_, quæ aliàs κατ ᾽ ἐξοχὴν _Fossiles_ vocantur, _Funerales aut Cinerales_ placet dicere, ab usu præcipuo, quo priscis Ethnicis habebantur: nimirum, ut Cinere ac Ossibus Mortuorum suorum repletas, tectasque lapide, vel aliâ re, telluri committerent; majores, mediocres, parvas; spe forsan aliquâ (per Traditiones obscurè acceptâ,) futuræ Resurrectionis: cujusmodi spes Ægyptios imprimis, cadavera Mortuorum non comburentes, sed balsamo, cedriâ, bitumine, aut aliis rebus condientes, ad conservanda eadem quamdiu à Corruptione, traxisse, non vana opinio est.
+§\. 17. Atque easdem _Fictiles_, quæ aliàs κατ' ἐξοχὴν _Fossiles_ vocantur, _Funerales aut Cinerales_ placet dicere, ab usu præcipuo, quo priscis Ethnicis habebantur: nimirum, ut Cinere ac Ossibus Mortuorum suorum repletas, tectasque lapide, vel aliâ re, telluri committerent; majores, mediocres, parvas; spe forsan aliquâ (per Traditiones obscurè acceptâ,) futuræ Resurrectionis: cujusmodi spes Ægyptios imprimis, cadavera Mortuorum non comburentes, sed balsamo, cedriâ, bitumine, aut aliis rebus condientes, ad conservanda eadem quamdiu à Corruptione, traxisse, non vana opinio est.
 
 §\. 18. _Fabricius_, citante _Albino_ (Weissnisch: Berg-Chronic: Tit 23. pag. 177. 178.) persuasione Vulgi potiùs, quàm propriâ opinione actus, _Ollas_ illas _à Pygmæis in Terrâ relictas_ refert, qui quondam in Antris Thuringiæ, et vicinarū regionum, habitaverint: unde Zwerg-Töpfe ibi quoque appellentur. Imò vivere etiamnum in subterraneis passim, Pygmæorum Gentem, et plura istiusmodi Vascula fingere. Quam fabulam autoribus suis defendendam, firmiterque credendam, lubens mittimus.
 
@@ -1047,7 +1047,7 @@ Intercessisse tamen his etiam Pannis diversos gradus Tincturæ suæ, aut _Purpur
 
 §\. 21. _Profundior aut Obscurior_, dicitur Nigricans, vel (_Plinio_ eidem) _Color Austerus in Glauco, et irascenti similis Mari_, citante _Columnâ_, (l. d. §. 12.) Exemplumque ibi infertur _Violæ_ purpureæ Montanæ, quam _Virgilius_ proin Nigram dixerit: et nos non insulsè addi hîc posse _Malvam_ hortensem atro-purpuream, censemus.
 
-§\. 22. _Violacea Dilutior_ demum notatur ab _Autore nostro_, conspicua esse in _Heliotropio_ (§. 11.) et _Amethysto_, quem Ianthinum, (h. e. Violaceum, κατ ᾽ ἐξοχὴν quasi) vocaverit _Plinius_ sæpe-laudatus: quo ipso de Gradualibus Purpurarum Differentiis jam sit dictum satis.
+§\. 22. _Violacea Dilutior_ demum notatur ab _Autore nostro_, conspicua esse in _Heliotropio_ (§. 11.) et _Amethysto_, quem Ianthinum, (h. e. Violaceum, κατ' ἐξοχὴν quasi) vocaverit _Plinius_ sæpe-laudatus: quo ipso de Gradualibus Purpurarum Differentiis jam sit dictum satis.
 
 ## Annotatio 7.
 
@@ -1524,7 +1524,7 @@ _Lepades_ vel _Patellæ_, à patendo dictæ: quæ vel
 
 [Concha Natatilis: vid. Tab. 4.]
 
-veræ, et κατ ᾽ ἐξοχὴν _Lepades_ (speciei multiplicis) partim
+veræ, et κατ' ἐξοχὴν _Lepades_ (speciei multiplicis) partim
 
 Mediocres: e. g. _Lepas Exotica variegata Column._ de Purp. c. 6.
 
@@ -2034,7 +2034,7 @@ _Excrementum_: Humor crassus, Fœculentus, qui post Alimenti digestionem, ut inu
 
 _Excretorius Meatus_: Pars concava intra Carnem, quâ Excrementum egeritur.
 
-_Exochæ_: Striæ Eminentes. Ἐξοχὴ, Eminentia, Acies. Unde vulgatum illud, κατ ᾽ ἐξοχὴν, per excellentiam: inque Architectonicis Pars ædificii quædam, quæ protuberat, Exocha dicitur.
+_Exochæ_: Striæ Eminentes. Ἐξοχὴ, Eminentia, Acies. Unde vulgatum illud, κατ' ἐξοχὴν, per excellentiam: inque Architectonicis Pars ædificii quædam, quæ protuberat, Exocha dicitur.
 
 **F\.**
 
